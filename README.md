@@ -5,7 +5,7 @@ dan kaga sengaja gitu nemuin brand of sacerfice  di plafon nya
 buat yang kaga tau 
 brand of sacerfice tu simbol pengorbanan 
 buat dapetin kekuasaaan 
-kita tau kalo buat neural link itu butuh tumbal banyak 
+nah kita tau kalo havx kejamnya bukan main kalo soal penelitian 
 makanya gti nyerang fasilitas havx buat berhentiin krisisi ini 
 
 
