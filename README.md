@@ -1,7 +1,12 @@
-kekejaman havx munggkin aja turunan dari  berserk 
-ya jadi kemarin gw tu sempet main di brakes
-dan kaga sengaja nemuin brand of sacerfice  di plafon nya pak 
-
+loh ternyata havx terinspirasi dari berserk 
+kok bisa 
+jadi gini kemaran  gw tu sempet main di brakes kan 
+dan kaga sengaja gitu nemuin brand of sacerfice  di plafon nya
+buat yang kaga tau 
+brand of sacerfice tu simbol pengorbanan 
+buat dapetin kekuasaaan 
+kita tau kalo buat neural link itu butuh tumbal banyak 
+makanya gti nyerang fasilitas havx buat berhentiin krisisi ini 
 
 
 
