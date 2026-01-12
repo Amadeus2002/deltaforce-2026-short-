@@ -1,3 +1,13 @@
+game extraction shooter tu sekarang banyak banget jenisnya , 
+tapi lu pada kepikiran ga si kenapa banyak yang suka genre ini 
+gameplay nya aja bikin sstres gitu , 
+apa jangan jangan  player nya masokis 
+
+
+
+
+
+
 loh ternyata havx terinspirasi dari berserk 
 kok bisa 
 jadi gini kemaran  gw tu sempet main di brakes kan 
