@@ -37,3 +37,7 @@ dan untuk link udah gw taruh di deskripsi
 daftar dan rasakan betapa nikmatnya dibantai abang abangan 
 
 
+badge paling susah didapetin  di delta force 
+kalo dapetin badge prodgy  lu udah anggep susah 
+itu mah gampang  tinggal lawan proplayer buatan devoper 
+kalo 
