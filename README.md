@@ -41,3 +41,19 @@ badge paling susah didapetin  di delta force
 kalo dapetin badge prodgy  lu udah anggep susah 
 itu mah gampang  tinggal lawan proplayer buatan devoper 
 kalo 
+
+apakah worth it untuk beli skin di game 
+ya ini adalaha sebuah pertanyaan yang sering banget gw denger
+dan kalo ambil prespektif ekonomi jawabanya jelas 
+engga worth it 
+tapi tapi  tunggu dulu nih  ,
+sebenernya kalo lu pada beli skin 
+kalian tu bantu perusahaan game tetep jalan 
+yang dfimana berarti menghidupi kariawan dari perusahaan tersebut 
+
+
+
+
+
+
+
