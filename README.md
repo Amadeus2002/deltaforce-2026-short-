@@ -61,6 +61,8 @@ kita bakalan kedatangan banyak banget hal baru
 mulai dari map warfer baru yanmg namanya aftershock 
 remake space city jadi bisa bernang bareng ikan tongkol 
 bahkan kedepanya lu juga  bisa cosplay jadi si saedin  
-dan  dev nya juga bilang kalo nantinya ada free melle  executioner
-yang  bisa di dapetin dengan nyelsain beberap quest warfere maupun  operationm 
- nah update nya sendiri bakalan hadir di tanggal 3 februari 
+dev nya juga bilang kalo bakalan  ada 
+free  legendary melle  executioner
+yang nantinya bisa di dapetin dengan
+nyelsain beberap quest warfere maupun  operationm 
+dan update nya sendiri bakalan hadir di tanggal 3 februari di bulan depan
