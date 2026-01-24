@@ -50,12 +50,17 @@ tapi tapi  tunggu dulu nih  ,
 sebenernya kalo lu pada beli skin 
 kalian tu bantu perusahaan game tetep jalan 
 yang dfimana berarti menghidupi kariawan dari perusahaan tersebut 
-
-
-
-
 ya ini adalaha sebuah pertanyaan yang sering banget gw denger
 dan kalo ambil prespektif ekonomi jawabanya jelas 
 engga worth it 
 
-
+siap siap dapet mele legend gratis 
+di season 8 beosk
+dari live stream Developer Preview kemarin 
+kita bakalan kedatangan banyak banget hal baru 
+mulai dari map warfer baru yanmg namanya aftershock 
+remake space city jadi bisa bernang bareng ikan tongkol 
+bahkan kedepanya lu juga  bisa cosplay jadi si saedin  
+dan  dev nya juga bilang kalo nantinya ada free melle  executioner
+yang  bisa di dapetin dengan nyelsain beberap quest warfere maupun  operationm 
+ nah update nya sendiri bakalan hadir di tanggal 3 februari 
