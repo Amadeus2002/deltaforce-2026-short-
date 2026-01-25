@@ -63,6 +63,11 @@ remake space city jadi bisa bernang bareng ikan tongkol
 bahkan kedepanya lu juga  bisa cosplay jadi si saedin  
 dev nya juga bilang kalo bakalan  ada 
 free  legendary melle  executioner
+
+
+
 yang nantinya bisa di dapetin dengan
 nyelsain beberap quest warfere maupun  operationm 
 dan update nya sendiri bakalan hadir di tanggal 3 februari di bulan depan
+
+mungkin ini adalah saaat yang tepat untu m
