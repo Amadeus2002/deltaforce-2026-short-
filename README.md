@@ -29,7 +29,9 @@ dan update nya sendiri bakalan hadir di tanggal 3 februari di bulan depan
 
 3
 map baru aftershock 
-
+mekanisme nya adalahpengaktifkan server di site b
+dan kalian butuh  3 x aktifin 
+sedikit berguncang di aktifasi ke 2
 
 
 
