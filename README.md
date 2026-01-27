@@ -32,14 +32,15 @@ map baru aftershock
 punya mekanisme unik
 buat ngancurin bangunan didalemnya 
 engga kaya kebanyakan di map lain
-yang butuh ditampol pake misil dulu baru bergertar 
-ini map udah bergetar sendiri dari sononya 
-ditambah lagi kalizn juga buisa mempercepat gempa 
+yang butuh ditampol pake misil dulu..... baru bergertar 
+nih map udah bergetar sendiri dari sononya 
+ditambah lagi      kalizn  juga buisa mempercepat gempa nya
 dengan cara aktifin sebuah server
-yang ada di dalem menara kembar site b 
-aktifasinya butuh  repetisi sampe ..... 3 x
-dan kalo udah selesai sebuah gempa besar bakalan terjadi 
-jadi jangan lupa buat ngejauh  karean site  b1 dan b2 bakalan runtuh secara berurutan 
+yang ada di dalem gedung fasilitas havx di site b 
+umtk aktifasinya sendri butuh  repetisi sampe ..... 3 x
+dan kalo udah selesai 
+sebuah gempa besar bakalan hadir
+jadi jangan lupa buat ngejauh      karean site  b1 dan b2 bakalan runtuh secara berurutan 
 
 
 
