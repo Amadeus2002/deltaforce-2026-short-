@@ -31,12 +31,11 @@ dan update nya sendiri bakalan hadir di tanggal 3 februari di bulan depan
 map baru aftershock 
 punya mekanisme unik
 buat ngancurin bangunan didalemnya 
-engga kaya kebanyakan di map lain
-yang butuh ditampol pake misil dulu..... baru bergertar 
-nih map udah bergetar sendiri dari sononya 
-ditambah lagi      kalizn  juga buisa mempercepat gempa nya
+beda  sama map lain yang harus ditampol pake misil  
+ini map malah butuhya gempa lempeng tektonik 
+kalizn  juga buisa mempercepat  gempa nya
 dengan cara aktifin sebuah server
-yang ada di dalem gedung fasilitas havx di site b 
+yang ada di dalem site b 
 umtk aktifasinya sendri butuh  repetisi sampe ..... 3 x
 dan kalo udah selesai 
 sebuah gempa besar bakalan hadir
@@ -62,6 +61,8 @@ sedikit berguncang di aktifasi ke 2
 
 
 
+yang butuh ditampol pake misil dulu..... baru bergertar 
+nih map udah bergetar sendiri dari sononya 
 
 
 
