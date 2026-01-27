@@ -31,7 +31,8 @@ dan update nya sendiri bakalan hadir di tanggal 3 februari di bulan depan
 map baru aftershock 
 punya mekanisme unik
 buat ngancurin bangunan didalemnya 
-sesauia namanya map ini adalah fasilitas havx yang gagal  buat  manipualasi  glomang seismik 
+nah map ini tu adlah fasilitas havx yang gagal  buat  manipualasi  glomang seismik
+yang ngebuatg gempa terjadi terus meerus dimap ini
 engga kaya kebanyakan map lain
 yang butuh ditampol pake misil dulu beru bergetar 
 di map ini kalizn cuma perlu di triger aja 
