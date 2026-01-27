@@ -29,9 +29,21 @@ dan update nya sendiri bakalan hadir di tanggal 3 februari di bulan depan
 
 3
 map baru aftershock 
-punya mekanisme
-unik buat ngancurin bangunan didalemnya 
+punya mekanisme unik
+buat ngancurin bangunan didalemnya 
+engga kaya kebanyakan map lain
+yang butuh ditampol pake misil dulu 2 sampai 3 x untuk ngancurin sebuah sektor
+untuk map ini kamu bisa triger gempa dengan  mengaktifkan sebuah server yang ada di site b 
+untuk aktifasi nya kalian butuh 3 x ngulangin buat 
+
+
+
+
+
+
 sesauia namanya map ini adalah fasilitas havx yang gagal  buat  manipualasi  glomang seismik 
+
+
 
 nya  nya adalahpengaktifkan server di site b
 dan kalian butuh  3 x aktifin 
