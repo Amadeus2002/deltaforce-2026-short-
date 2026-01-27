@@ -37,8 +37,8 @@ ini map udah bergetar sendiri dari sononya
 ditambah lagi kalizn juga buisa mempercepat gempa 
 dengan cara aktifin sebuah server
 yang ada di dalem menara kembar di  site b 
-aktifasinya butuh  repetisi sampe ..... 3 x sampe gempa yang besar 
-setelaah selesai yang ke 3 bakalan terjadi gempa besar 
+aktifasinya butuh  repetisi sampe ..... 3 x
+setelaah selesai yang ke 3 bakalan terjadi gempa besar  
 jangan lupa buat buru bur kabur  
 karena kalo telat keluar 
 siap siap ae jadi tempe geprek 
