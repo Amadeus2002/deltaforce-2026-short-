@@ -39,7 +39,7 @@ dengan cara aktifin sebuah server
 yang ada di dalem menara kembar site b 
 aktifasinya butuh  repetisi sampe ..... 3 x
 dan kalo udah selesai sebuah gempa besar bakalan terjadi 
-jangan lupa buat ngejauh  karean site  b1 dan b2 bakalan tuntuh secara berurutan 
+jadi jangan lupa buat ngejauh  karean site  b1 dan b2 bakalan runtuh secara berurutan 
 
 
 
