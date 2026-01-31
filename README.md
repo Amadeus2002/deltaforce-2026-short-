@@ -42,6 +42,12 @@ sebuah gempa besar bakalan hadir
 jadi jangan lupa buat ngejauh      karean site  b1 dan b2 bakalan runtuh secara berurutan 
 
 
+eh la kok mirip cosplayer yabai kenalin ini lina van der meer codename  vlinder 
+operator support 
+yang kitnya bakal lebih optimal
+kalo dipake di operation 
+raven rescue uav 
+
 
 nah map ini tu adlah fasilitas havx yang gagal  buat  manipualasi  glomang seismik
 yang ngebuatg gempa terjadi terus meerus dimap ini
