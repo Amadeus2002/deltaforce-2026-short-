@@ -42,11 +42,15 @@ sebuah gempa besar bakalan hadir
 jadi jangan lupa buat ngejauh      karean site  b1 dan b2 bakalan runtuh secara berurutan 
 
 
+4
 loh  la kok mirip cosplayer yabai kenalin ini lina van der meer codename  vlinder 
 operator support baru 
 yang kitnya bakal lebih optimal
 kalo dipake di operation 
-
+skil riveive nya doi bisa rivive dari jauh 
+healing nya deres 
+smoke nya panjang
+kek nya gw ga bakal pake stringer lagi deh di operationn
 
 
 
