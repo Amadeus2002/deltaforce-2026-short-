@@ -47,11 +47,10 @@ loh  la kok mirip cosplayer yabai kenalin ini lina van der meer codename  vlinde
 operator support baru 
 yang kitnya bakal lebih optimal
 kalo dipake di operation 
-skil riveive nya doi bisa rivive dari jauh 
+skil riveive nya doi bisa rivive dari ajrak  jauh jadi cocok banget buat 
 healing nya deres 
-smoke nya panjang
-kek nya gw ga bakal pake stringer lagi deh di operationn
-
+smoke nya panjang 
+keknya gw bakal buang jauh jauh stringer si di season 8 ini 
 
 
 nah map ini tu adlah fasilitas havx yang gagal  buat  manipualasi  glomang seismik
@@ -83,7 +82,7 @@ nih map udah bergetar sendiri dari sononya
 
 
 
-
+ menurutlu 10 detik itu singkat coba rivive emen lu seblum lawanya wip itu berasa ama banget  
 
 
 
