@@ -41,6 +41,17 @@ dan kalo udah selesai
 sebuah gempa besar bakalan hadir
 jadi jangan lupa buat ngejauh      karean site  b1 dan b2 bakalan runtuh secara berurutan 
 
+in this economy ngegame doang bisa ngehasiliin duit 
+kayak baru baru ini , gamer china , bisa ngehasilin 3000 asmpe 5000 usd cuma  dari  game dela force doang 
+kalo lu pada belum tau 
+sebenernya banyak banget jasa yang bisa di jual dari game ini 
+mulai dari jasa body guard yang nawarin kamanan 
+mulai dari 
+
+buat yang ga tau rmt tu apa ini 
+mulai dari gamer cina yang nyediain jasa  body guard 
+kalo sewa body guard si  ngga masalah 
+
 
 4
 loh  la kok mirip cosplayer yabai kenalin ini lina van der meer codename  vlinder 
