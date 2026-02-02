@@ -50,7 +50,7 @@ di mode operation delta force butuh  mataa uang  alloy buat beli perlengkapan
 nah disinlah mereka manfaatn celah sistem buat ngelakuin rmt 
 ditambah lagi beberapa item upgrade stash 
 yang probility munculnya kecil nanget
-nah karean ada kebutuhan ini mereka  ngelakuin rmt atau 
+nah karean ada kebutuhan ini mereka  ngelakuin rmt atau                  
 
 
 
