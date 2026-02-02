@@ -53,9 +53,10 @@ nah disinlah mereka manfatin kebutuhan player buat ngelakuin rmt
 atau singkatnya kek jualan item yang ada di ingame 
 cuman  masalahnya praktik kayak gini dilarang sama devloper nya sendiri 
 kalo lu pada tetep nekat ya  bisa aja 
-tapi siap siap aja kalo kena denda , atau bahkan mungkin  kena  baned juga 
+tapi siap siap aja kalo kena denda , dan amit amitnya kena  baned 
 dan karena praktik rmt tu bahaya player cina juga punya opsi lain nih
-kaya joki value , joki rank , joki titel dan juga joki joki lainya tertarik buat nyoba ?
+kaya joki value , joki rank , joki titel dan juga joki joki lainya 
+tertarik bat nyoba ?
 
 
 
