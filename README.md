@@ -46,7 +46,8 @@ lagi rame nih
 gamer china yang  bisa ngehasilin 3000 asmpe 5000 usd
 cuma  dari  game dela force doang 
 jadi kalo lu pada belum tau 
-di mode operation delta force merluin mataa uang teknick alloy buat 
+di mode operation delta force butuh  mataa uang  alloy buat beli perlengkapan 
+nah disinlah mereka manfaatn celah sistem buat ngelakuin rmt 
 ditambah lagi beberapa item upgrade stash 
 yang probility munculnya kecil nanget
 nah karean ada kebutuhan ini mereka  ngelakuin rmt atau 
