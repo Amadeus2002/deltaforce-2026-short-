@@ -47,10 +47,17 @@ gamer china yang  bisa ngehasilin 3000 asmpe 5000 usd
 cuma  dari  game dela force doang 
 jadi kalo lu pada belum tau 
 di mode operation delta force butuh  mataa uang  alloy buat beli perlengkapan 
-nah disinlah mereka manfaatn celah sistem buat ngelakuin rmt 
-ditambah lagi beberapa item upgrade stash 
-yang probility munculnya kecil nanget
-nah karean ada kebutuhan ini mereka  ngelakuin rmt atau                  
+ditambah lagi ada juga  beberapa item upgrade penyimpanann
+yang probility munculnya  kecil banget
+nah disinlah mereka manfatin kebutuhan player buat ngelakuin rmt
+atau singkatnya kek jualan item yang ada di ingame 
+cuman  masalahnya praktik kayak gini dilarang sama devloper nya sendiri 
+kalo lu pada tetep nekat ya  bisa aja 
+tapi siap siap aja kalo kena denda , atau bahkan mungkin  kena  baned juga 
+dan karena praktik rmt tu bahaya player cina juga punya opsi lain nih
+kaya joki value , joki rank , joki titel dan juga joki joki lainya tertarik buat nyoba ?
+
+
 
 
 
