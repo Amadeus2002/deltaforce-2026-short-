@@ -41,8 +41,14 @@ dan kalo udah selesai
 sebuah gempa besar bakalan hadir
 jadi jangan lupa buat ngejauh      karean site  b1 dan b2 bakalan runtuh secara berurutan 
 
- gamer china , bisa ngehasilin 3000 asmpe 5000 usd cuma  dari  game dela force doang 
-kalo lu pada belum tau 
+4 
+ahir ahir ini gamer china , bisa ngehasilin 3000 asmpe 5000 usd cuma  dari  game dela force doang 
+jadi kalo lu pada belum tau di mode operation punya beberapa item upgrade  yang sangat sangat limited dan probility munculnya kecil nanget 
+dan ada beberapa celah yang memungkinkan kalian bisa bertemu juga gdlam satu math 
+tapi apakag  ememng bisa dipake itu sebuah pertanyaaan yang menarik 
+tim delta force juga udah siapin beberapa punishing buat  yang masih nekat buat ngelakuin rmt di game ini 
+yangt ringan rinagn mulai dari penyitaan mata uang alloy , yang di buat model cicilan 
+dan sampai uang parh itu baned akun 
 sebenernya banyak banget jasa yang bisa di jual dari game ini 
 mulai dari jasa body guard yang nawarin kamanan 
 mulai dari 
