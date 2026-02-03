@@ -59,29 +59,10 @@ kaya jasa body guard jasa  joki value , joki rank , joki titel dan juga joki jok
 gimana tertarik buat nyoba ?
 
 
+5
+loh suupprt ini kok mirip cosplayer yabai yak 
+nah jadi  vlinder 
 
-
-tapi apakah ini aman untuk dicontoh hmm
-ya mungkin gw 
-
-jadi kalo lu pada belum tau di mode operation punya beberapa item upgrade  yang sangat sangat limited dan probility munculnya kecil nanget 
-dan ada beberapa celah yang memungkinkan kalian bisa bertemu juga gdlam satu math 
-tapi apakag  ememng bisa dipake itu sebuah pertanyaaan yang menarik 
-tim delta force juga udah siapin beberapa punishing buat  yang masih nekat buat ngelakuin rmt di game ini 
-yangt ringan rinagn mulai dari penyitaan mata uang alloy , yang di buat model cicilan 
-dan sampai uang parh itu baned akun 
-sebenernya banyak banget jasa yang bisa di jual dari game ini 
-mulai dari jasa body guard yang nawarin kamanan 
-mulai dari 
-
-buat yang ga tau rmt tu apa ini 
-mulai dari gamer cina yang nyediain jasa  body guard 
-kalo sewa body guard si  ngga masalah 
-
-
-4
-loh  la kok mirip cosplayer yabai kenalin ini lina van der meer codename  vlinder 
-operator support baru 
 yang kitnya bakal lebih optimal
 kalo dipake di operation 
 skil riveive nya doi bisa rivive dari ajrak  jauh jadi cocok banget buat 
