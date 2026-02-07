@@ -59,7 +59,8 @@ kaya jasa body guard jasa  joki value , joki rank , joki titel dan juga joki jok
 gimana tertarik buat nyoba ?
 
 
-5
+5 
+lu  pada sadar ga si ,kalo  kebanyakan pro player itu umurnya di kisaran 16 sampe 25  tahun kalo kelebihan dan yan g paling tua 
 loh suupprt ini kok mirip cosplayer yabai yak 
 nah jadi  vlinder 
 
