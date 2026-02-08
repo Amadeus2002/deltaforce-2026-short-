@@ -60,7 +60,11 @@ gimana tertarik buat nyoba ?
 
 
 5 
-lu  pada sadar ga si ,kalo  kebanyakan pro player itu umurnya di kisaran 16 sampe 25  tahun kalo kelebihan dan yan g paling tua 
+lu  pada.... sadar ga si , kebanyakan pro player itu umurnya prima nya cuma  di kisaran 16 sampe 25 tahun 
+tapi  ada ga si  yang umur nya paling tua banget 
+kenalin 
+kenali  kakek ini namanya 
+
 loh suupprt ini kok mirip cosplayer yabai yak 
 nah jadi  vlinder 
 
