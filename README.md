@@ -60,8 +60,23 @@ gimana tertarik buat nyoba ?
 
 
 5 
-lu  pada.... sadar ga si , kebanyakan pro player itu umurnya prima nya cuma  di kisaran 16 sampe 25 tahun 
-tapi  ada ga si  yang umur nya paling tua banget 
+kakek ini adalah pro player tertua di dunia
+jadi dulu di tahun 2018 ada sebuah turname csgo yang namanya 
+kita tau usia pimaa pro player  itu di kisara 18 sampe 25 
+tapi 
+di hard bardie 
+
+lu  pada.... sadar ga si , kita tu jarang banget  liat pro player yang umur nya diatas  30 tahunan 
+tapi kira kira usia pro player tu bisa sampe berapa ?
+pertama lu harus kanalan dulu sama mbah abbe borg 78 tahun csgo senior dreamhack 
+
+
+
+
+
+ya kebanyakan pro player itu umur prima nya cuma  di kisaran 16 sampe 25 tahun , selebihnya 
+tapi kira kira ada ga si sampe yang tua banget 
+ooo jelas adda kenalin 
 kenalin 
 kenali  kakek ini namanya 
 
