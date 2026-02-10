@@ -59,9 +59,10 @@ kaya jasa body guard jasa  joki value , joki rank , joki titel dan juga joki jok
 gimana tertarik buat nyoba ?
 
 
-5 
+5 abbe borg 
 kakek ini adalah pro player tertua di dunia
-jadi dulu di tahun 2018 ada sebuah turname csgo yang namanya 
+jadi dulu  di tahun 2018
+ada sebuah turname  DreamHack Summer 
 kita tau usia pimaa pro player  itu di kisara 18 sampe 25 
 tapi 
 di hard bardie 
