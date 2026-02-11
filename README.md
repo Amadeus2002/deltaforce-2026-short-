@@ -60,9 +60,12 @@ gimana tertarik buat nyoba ?
 
 
 5 abbe borg 
-kakek ini adalah pro player tertua di dunia
-jadi dulu  di tahun 2018
-ada sebuah turname  DreamHack Summer 
+gimana kalo lagi turnamen esport tapi lawan nya malah lansia semua 
+jadi dulu di tahun 2018 
+ada salah satu event game paling gede di swedia
+nama dreamhack summer 
+
+
 kita tau usia pimaa pro player  itu di kisara 18 sampe 25 
 tapi 
 di hard bardie 
