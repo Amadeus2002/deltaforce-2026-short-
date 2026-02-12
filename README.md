@@ -61,9 +61,15 @@ gimana tertarik buat nyoba ?
 
 5 abbe borg 
 gimana kalo lagi turnamen esport tapi lawan nya malah lansia semua 
-jadi dulu di tahun 2018 
+jadi dulu di tahun 2019
 ada salah satu event game paling gede di swedia
 nama dreamhack summer 
+di tahun itu merka buka  kategori khusus buatn CS:GO expert
+kalo cs go major itu kejuaraan dunia 
+atau singkatnya buat yang tua tua aja
+pemain usia 60 tahun ke atas. Salah satu tim yang ikut adalah Silver Snipers, tim asal Swedia yang berisi para pemain senior.
+
+Salah satu anggotanya adalah Abbe Borg, dengan nickname DieHardBirdie. Saat itu usianya sudah di atas 70 tahun. Mereka bukan sekadar tampil untuk hiburan, tetapi benar-benar bertanding dengan format kompetitif seperti turnamen pada umumnya: ada sistem bracket, pertandingan resmi, dan lawan dari negara lain.
 
 
 kita tau usia pimaa pro player  itu di kisara 18 sampe 25 
