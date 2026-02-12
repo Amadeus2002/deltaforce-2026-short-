@@ -65,7 +65,8 @@ jadi dulu di tahun 2019
 ada salah satu event game paling gede di swedia
 nama dreamhack summer 
 di tahun itu merka buka  kategori khusus buatn CS:GO expert
-kalo cs go major itu kejuaraan dunia 
+kalo cs go major itu kejuaraan dunia tingkat dunia  maka ini vversi buat orang lansia
+
 atau singkatnya buat yang tua tua aja
 pemain usia 60 tahun ke atas. Salah satu tim yang ikut adalah Silver Snipers, tim asal Swedia yang berisi para pemain senior.
 
