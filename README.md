@@ -63,9 +63,11 @@ gimana tertarik buat nyoba ?
 gimana kalo lagi turnamen esport tapi lawan nya malah lansia semua 
 jadi dulu di tahun 2019
 ada salah satu event game paling gede di swedia
-nama dreamhack summer 
-di tahun itu merka buka  kategori khusus buatn CS:GO expert
-kalo cs go major itu kejuaraan dunia tingkat dunia  maka ini vversi buat orang lansia
+nama dreamhack summer
+sebuah ajang  esport yang menurut gw cukup unik 
+karena  lu bisa bawa pc cendiri kalo mau ikutan turnamen
+dan kebetulan  tahun itu merka buka  kategori khusus buatn CS:GO expert
+
 
 atau singkatnya buat yang tua tua aja
 pemain usia 60 tahun ke atas. Salah satu tim yang ikut adalah Silver Snipers, tim asal Swedia yang berisi para pemain senior.
