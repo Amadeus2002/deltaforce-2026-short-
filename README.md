@@ -68,6 +68,13 @@ sebuah ajang  esport yang menurut gw cukup unik
 karena  lu bisa bawa pc cendiri kalo mau ikutan turnamen
 dan kebetulan  tahun itu merka buka  kategori khusus buatn CS:GO expert
 
+delta tiket gratis mending beli apa yah 
+apakah s beli melee atau beliin kosmetik ajah
+sini gw jelasin .....yang terbaik buat lu 
+kalo  lu player ops gw sangat menyaranan 
+mending beli melee atau skin 
+
+
 
 atau singkatnya buat yang tua tua aja
 pemain usia 60 tahun ke atas. Salah satu tim yang ikut adalah Silver Snipers, tim asal Swedia yang berisi para pemain senior.
