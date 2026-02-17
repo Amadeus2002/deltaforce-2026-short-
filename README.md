@@ -64,15 +64,18 @@ gimana kalo lagi turnamen esport tapi lawan nya malah lansia semua
 jadi dulu di tahun 2019
 ada salah satu event game paling gede di swedia
 nama dreamhack summer
-sebuah ajang  esport yang menurut gw cukup unik 
+sebuah ajang  esport yang ngumpulin sebuag 
 karena  lu bisa bawa pc cendiri kalo mau ikutan turnamen
 dan kebetulan  tahun itu merka buka  kategori khusus buatn CS:GO expert
 
-delta tiket gratis mending beli apa yah 
-apakah s beli melee atau beliin kosmetik ajah
+delta tiket gratis mending beli apa yah  bali melee apa skin ajah hmmm
+mungkin sebagian dari kalian udah  claim box nya duluan di tangal 16 kemarin 
+baut yang ga kebagian  tenang aja karean tetap bakal dapet di tanggal  21 nanti  
+kalo  masih binggung 
 sini gw jelasin .....yang terbaik buat lu 
-kalo  lu player ops gw sangat menyaranan 
-mending beli melee atau skin 
+untuk player ops gw sangat menyaranan  ambil melee ajah dengan asumsi kalian berahasil dapetin  5220 delta tiket di event ini 
+terus karean sekarang ada 2 baner sekarangada 2 mending yang manah 
+
 
 
 
