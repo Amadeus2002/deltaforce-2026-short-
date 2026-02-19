@@ -68,17 +68,50 @@ sebuah ajang  esport yang ngumpulin sebuag
 karena  lu bisa bawa pc cendiri kalo mau ikutan turnamen
 dan kebetulan  tahun itu merka buka  kategori khusus buatn CS:GO expert
 
-delta tiket gratis mending beli apa yah  bali melee apa skin ajah hmmm
+delta tiket gratis mending beli apa yah 
+bali melee apa skin ajah 
+
+sini gw jelasin .....yang terbaik buat lu 
+untuk player ops gw sangat menyaranan  ambil melee ajah  dengan asumsi kalian udah punya  5220 delta tiket,
+karean ini bakal ngebantu banget  buat clear npc lebih cepet , dan tentuny ngehemat peluru juga 
+terus karean sekarang ada 2 baner melee. kira kira  mending ambil yang mana nih  ?
+firy owl atau darkstar 
+kalu  untuk  damage  dan jangkauan 
+darkstar bakalan jauh lebih unggul 
+bahkan dia juga bisa one hit ke npc 
+kek ngincer kepala tu gampang aja gutu rasanya 
+ditambah lagi ini melee  punya inspect yang lumayan keren 
+
+nah tapi kalo ngomongin kecepatan dan duel gw pribadi lebih suka firy owl  
+tipe serangan yang fast  dan  flat
+bikin time to kil lebih cepet juga 
+tapi ini balik lagi ke selera kalian aja ya
+
+dan buat  yang cuma dapet delta tiket nya......dikt 
+terus ga  mau spending money lagi 
+nyicil salah satu dari tiga skin legend bakaln lebih worth it 
+pity  mereka ga bakal ke reset walaupun ganti season 
+jadi bisa nunggu evnt gratisan selanjutya 
+
+
+
+
 mungkin sebagian dari kalian udah  claim box nya duluan di tangal 16 kemarin 
 baut yang ga kebagian  tenang aja karean tetap bakal dapet di tanggal  21 nanti  
 kalo  masih binggung 
-sini gw jelasin .....yang terbaik buat lu 
-untuk player ops gw sangat menyaranan  ambil melee ajah dengan asumsi kalian berahasil dapetin  5220 delta tiket di event ini 
-terus karean sekarang ada 2 baner sekarangada 2 mending yang manah 
 
+bahkan one hit untuk npc asarah 
 
+sbenernya tergantung slera kalian 
+darkstasr itu lebih enek 
+tenrunya dengan asumsi kalian berahasil dapetin  5220 delta tiket, antisipasi  kalo gacha gachanya bau 
 
-
+delta tiket gratis mending beli apa yah 
+bali melee apa skin ajah 
+mungkin sebagian dari kalian udah  ngeclaim box nya duluan 
+di tangal 16 kemarin dan  baut yang ga kebagian  tenang aja 
+tetap bakal dapet kok, di tanggal  21 nanti  
+mungkin ini bisa bantu pertimbangan lu pada
 atau singkatnya buat yang tua tua aja
 pemain usia 60 tahun ke atas. Salah satu tim yang ikut adalah Silver Snipers, tim asal Swedia yang berisi para pemain senior.
 
