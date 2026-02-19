@@ -59,13 +59,7 @@ kaya jasa body guard jasa  joki value , joki rank , joki titel dan juga joki jok
 gimana tertarik buat nyoba ?
 
 
-5 abbe borg 
-gimana kalo lagi turnamen esport tapi lawan nya malah lansia semua 
-jadi dulu di tahun 2019
-ada salah satu event game paling gede di swedia
-nama dreamhack summer
-sebuah ajang  esport yang ngumpulin sebuag 
-karena  lu bisa bawa pc cendiri kalo mau ikutan turnamen
+
 dan kebetulan  tahun itu merka buka  kategori khusus buatn CS:GO expert
 
 delta tiket gratis mending beli apa yah 
@@ -81,19 +75,23 @@ darkstar bakalan jauh lebih unggul
 bahkan dia juga bisa one hit ke npc 
 kek ngincer kepala tu gampang aja gutu rasanya 
 ditambah lagi ini melee  punya inspect yang lumayan keren 
-
 nah tapi kalo ngomongin kecepatan dan duel gw pribadi lebih suka firy owl  
 tipe serangan yang fast  dan  flat
 bikin time to kil lebih cepet juga 
 tapi ini balik lagi ke selera kalian aja ya
-
 dan buat  yang cuma dapet delta tiket nya......dikt 
 terus ga  mau spending money lagi 
 nyicil salah satu dari tiga skin legend bakaln lebih worth it 
 pity  mereka ga bakal ke reset walaupun ganti season 
-jadi bisa nunggu evnt gratisan selanjutya 
+jadi bisa nunggu evnt gratisan selanjutya deh
 
-
+5 abbe borg 
+gimana kalo lagi turnamen esport tapi lawan nya malah lansia semua 
+jadi dulu di tahun 2019
+ada salah satu event game paling gede di swedia
+nama dreamhack summer
+sebuah ajang  esport yang ngumpulin sebuag 
+karena  lu bisa bawa pc cendiri kalo mau ikutan turnamen
 
 
 mungkin sebagian dari kalian udah  claim box nya duluan di tangal 16 kemarin 
