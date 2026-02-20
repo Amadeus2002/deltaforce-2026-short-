@@ -67,21 +67,21 @@ bali melee apa skin ajah
 
 sini gw jelasin .....yang terbaik buat lu 
 untuk player ops gw sangat menyaranan  ambil melee ajah  dengan asumsi kalian udah punya  5220 delta tiket,
-karean ini bakal ngebantu banget  buat clear npc lebih cepet , dan tentuny ngehemat peluru juga 
+ kenapa karean ini bakal ngebantu banget  buat clear npc lebih cepet , dan tentuny ngehemat peluru juga 
 terus karean sekarang ada 2 baner melee. kira kira  mending ambil yang mana nih  ?
 firy owl atau darkstar 
 kalu  untuk  damage  dan jangkauan 
 darkstar bakalan jauh lebih unggul 
 bahkan dia juga bisa one hit ke npc 
 kek ngincer kepala tu gampang aja gutu rasanya 
-ditambah lagi ini melee  punya inspect yang lumayan keren 
-nah tapi kalo ngomongin kecepatan dan duel gw pribadi lebih suka firy owl  
-tipe serangan yang fast  dan  flat
-bikin time to kil lebih cepet juga 
-tapi ini balik lagi ke selera kalian aja ya
+ditambah lagi ini melee  punya inspect yang lumayan keren ganti ganti warna 
+tapi kalo ngomongin firy owl apa yang lu arepin ini melee, keknya maih bagus an piso black hawk deh  t
+tipe serangan yang fast  dan  flat ya 
+bikin time to kill nya ga lebih baik dari darkstar  beda 06 detik 
+tapi ini balik lagi ke selera masing masing
 dan buat  yang cuma dapet delta tiket nya......dikt 
 terus ga  mau spending money lagi 
-nyicil salah satu dari tiga skin legend bakaln lebih worth it 
+mungkin nyicil salah satu dari tiga skin legend bakaln lebih worth it 
 pity  mereka ga bakal ke reset walaupun ganti season 
 jadi bisa nunggu evnt gratisan selanjutya deh
 
