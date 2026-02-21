@@ -66,24 +66,30 @@ delta tiket gratis mending beli apa yah
 bali melee apa skin ajah 
 
 sini gw jelasin .....yang terbaik buat lu 
-untuk player ops gw sangat menyaranan  ambil melee ajah  dengan asumsi kalian udah punya  5220 delta tiket,
- kenapa karean ini bakal ngebantu banget  buat clear npc lebih cepet , dan tentuny ngehemat peluru juga 
+untuk player ops gw sangat menyaranan  ambil melee ajah  dengan asumsi kalian berhasil dapetin seengaganya 5220 delta tiket,
+ kenapa karean melee yang bafus damagenya lebih gede baklan ngebantu banget  buat clear npc lebih cepet , 
+secara price to performance sangat worth it 
 terus karean sekarang ada 2 baner melee. kira kira  mending ambil yang mana nih  ?
 firy owl atau darkstar 
 kalu  untuk  damage  dan jangkauan 
 darkstar bakalan jauh lebih unggul 
-bahkan dia juga bisa one hit ke npc 
-kek ngincer kepala tu gampang aja gutu rasanya 
-ditambah lagi ini melee  punya inspect yang lumayan keren ganti ganti warna 
-tapi kalo ngomongin firy owl apa yang lu arepin ini melee, keknya maih bagus an piso black hawk deh  t
-tipe serangan yang fast  dan  flat ya 
-bikin time to kill nya ga lebih baik dari darkstar  beda 06 detik 
-tapi ini balik lagi ke selera masing masing
+dengan damge awal 30 kalian udah  bisa one hit ke npc 
+dan buat  ngincer kepala tu gampang aja gutu rasanya 
+ditambah lagi ini melee  punya inspect yang lumayan keren juga 
+
+tapi kalo ngomongin speed 
+firy owl lebih unggul,tipe serangan yang fast  dan  flat 
+buat baku hantam rsaya lebih enak  
+masalahnya  damage dia kecil cuma  25 
+time to kill nya juga  lebih lambat sekitar 0,6 detik dari darkstar 
+ya ngga kerasa juga  si .
+tapi keknya maih bagus an piso black hawk yang gratisan deh 
+yaaa balik lagi ke selera masing masing
 dan buat  yang cuma dapet delta tiket nya......dikt 
 terus ga  mau spending money lagi 
 mungkin nyicil salah satu dari tiga skin legend bakaln lebih worth it 
 pity  mereka ga bakal ke reset walaupun ganti season 
-jadi bisa nunggu evnt gratisan selanjutya deh
+jadi kalian bisa nunggu evnt gratisan selanjutya deh
 
 5 abbe borg 
 gimana kalo lagi turnamen esport tapi lawan nya malah lansia semua 
