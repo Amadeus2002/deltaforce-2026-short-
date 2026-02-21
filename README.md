@@ -81,7 +81,7 @@ tapi kalo ngomongin speed
 firy owl lebih unggul,tipe serangan yang fast  dan  flat 
 buat baku hantam rsaya lebih enak  
 masalahnya  damage dia kecil cuma  25 
-time to kill nya juga  lebih lambat sekitar 0,6 detik dari darkstar 
+time to kill nya juga  lebih lambat sekitar 0,05 detik dari darkstar 
 ya ngga kerasa juga  si .
 tapi keknya maih bagus an piso black hawk yang gratisan deh 
 yaaa balik lagi ke selera masing masing
