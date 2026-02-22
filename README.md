@@ -58,16 +58,12 @@ dan karena praktik rmt tu bahaya beberap gamer cina juga punya opsi lain nih
 kaya jasa body guard jasa  joki value , joki rank , joki titel dan juga joki joki lainya 
 gimana tertarik buat nyoba ?
 
-
-
-dan kebetulan  tahun itu merka buka  kategori khusus buatn CS:GO expert
-
+5
 delta tiket gratis mending beli apa yah 
 bali melee apa skin ajah 
-
 sini gw jelasin .....yang terbaik buat lu 
 untuk player ops gw sangat menyaranan  ambil melee ajah  dengan asumsi kalian berhasil dapetin seengaganya 5220 delta tiket,
- kenapa karean melee yang bafus damagenya lebih gede baklan ngebantu banget  buat clear npc lebih cepet , 
+kenapa karean melee yang bafus damagenya lebih gede baklan ngebantu banget  buat clear npc lebih cepet , 
 secara price to performance sangat worth it 
 terus karean sekarang ada 2 baner melee. kira kira  mending ambil yang mana nih  ?
 firy owl atau darkstar 
@@ -76,7 +72,6 @@ darkstar bakalan jauh lebih unggul
 dengan damge awal 30 kalian udah  bisa one hit ke npc 
 dan buat  ngincer kepala tu gampang aja gutu rasanya 
 ditambah lagi ini melee  punya inspect yang lumayan keren juga 
-
 tapi kalo ngomongin speed 
 firy owl lebih unggul,tipe serangan yang fast  dan  flat 
 buat baku hantam rsaya lebih enak  
@@ -90,6 +85,20 @@ terus ga  mau spending money lagi
 mungkin nyicil salah satu dari tiga skin legend bakaln lebih worth it 
 pity  mereka ga bakal ke reset walaupun ganti season 
 jadi kalian bisa nunggu evnt gratisan selanjutya deh
+
+6
+di delta force ada salah satu emblem yang susah banget buat dapetinya 
+kalian perlu bakar gear dan buang buang teknik allloy cuma buat badge ini 
+tapi untunmgnya kusus di  bulan februari ini kalian bisa mafaatin evnt angpau 
+buat dapetin  badge dengan lebih muadah 
+caranya tinggal buat aja 3 angpau lewat event ....
+pastikan kalian ambil 3 biji dengan harga satu jutaan , langkah selanjutnya tinggala ajak temen atau solo randm juga bisa 
+
+
+
+kalian bisa ambi emblem in lebih mudah 
+ya emblem ini adalah 
+
 
 5 abbe borg 
 gimana kalo lagi turnamen esport tapi lawan nya malah lansia semua 
