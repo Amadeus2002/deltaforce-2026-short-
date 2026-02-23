@@ -88,10 +88,18 @@ jadi kalian bisa nunggu evnt gratisan selanjutya deh
 
 6
 di delta force ada salah satu emblem yang susah banget buat dapetinya 
-kalian perlu bakar gear dan buang buang teknik allloy cuma buat badge ini 
-tapi untunmgnya kusus di  bulan februari ini kalian bisa mafaatin evnt angpau 
+kalian perlu bakar alloy  dan buang buang gear  cuma buat badge ini 
+nama badge nya 
+tapi untunmgnya  di  bulan februari kita   bisa mafaatin evnt angpau
 buat dapetin  badge dengan lebih muadah 
-caranya tinggal buat aja 3 angpau lewat event ....
+untukk persyaratan  dasasrnya di operation tide prison 
+ngga  bolejh ngambil ekuipmwnt yang yang udah di bawa dari lobi , 
+masih pake baju tahanan kuning 
+yang  bakalan ngebuat kalian  ga bisa pake skil 
+bahkan ambil chesrig maupun tas  ga bisa
+jadi  murni ngandelin  brangkas
+kalian juga harus ekstaak minimal dengan value 1juta
+untuk cara bypasnya  tinggal buat aja 3 angpau lewat event ....
 pastikan kalian ambil 3 biji dengan harga satu jutaan , langkah selanjutnya tinggala ajak temen atau solo randm juga bisa 
 
 
