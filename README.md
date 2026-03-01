@@ -1,4 +1,4 @@
- januari 
+//januari//
 
 1
 skin mgs mundur tapi ini kesempatan yang bagus 
@@ -39,8 +39,9 @@ yang ada di dalem site b
 umtk aktifasinya sendri butuh  repetisi sampe ..... 3 x
 dan kalo udah selesai 
 sebuah gempa besar bakalan hadir
-jadi jangan lupa buat ngejauh      karean site  b1 dan b2 bakalan runtuh secara berurutan 
+jadi jangan lupa buat ngejauh karean site  b1 dan b2 bakalan runtuh secara berurutan 
 
+//februari//
 4 
 lagi rame nih 
 gamer china yang  bisa ngehasilin 3000 asmpe 5000 usd
@@ -103,9 +104,21 @@ untuk cara bypasnya  tinggal buat aja 3 angpau lewat event ....
 pastikan kalian ambil 3 biji dengan harga satu jutaan , langkah selanjutnya tinggala ajak temen atau solo randm juga bisa 
 
 
+//maret//
+7
 
-kalian bisa ambi emblem in lebih mudah 
-ya emblem ini adalah 
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 5 abbe borg 
@@ -117,89 +130,7 @@ sebuah ajang  esport yang ngumpulin sebuag
 karena  lu bisa bawa pc cendiri kalo mau ikutan turnamen
 
 
-mungkin sebagian dari kalian udah  claim box nya duluan di tangal 16 kemarin 
-baut yang ga kebagian  tenang aja karean tetap bakal dapet di tanggal  21 nanti  
-kalo  masih binggung 
-
-bahkan one hit untuk npc asarah 
-
-sbenernya tergantung slera kalian 
-darkstasr itu lebih enek 
-tenrunya dengan asumsi kalian berahasil dapetin  5220 delta tiket, antisipasi  kalo gacha gachanya bau 
-
-delta tiket gratis mending beli apa yah 
-bali melee apa skin ajah 
-mungkin sebagian dari kalian udah  ngeclaim box nya duluan 
-di tangal 16 kemarin dan  baut yang ga kebagian  tenang aja 
-tetap bakal dapet kok, di tanggal  21 nanti  
-mungkin ini bisa bantu pertimbangan lu pada
-atau singkatnya buat yang tua tua aja
-pemain usia 60 tahun ke atas. Salah satu tim yang ikut adalah Silver Snipers, tim asal Swedia yang berisi para pemain senior.
-
-Salah satu anggotanya adalah Abbe Borg, dengan nickname DieHardBirdie. Saat itu usianya sudah di atas 70 tahun. Mereka bukan sekadar tampil untuk hiburan, tetapi benar-benar bertanding dengan format kompetitif seperti turnamen pada umumnya: ada sistem bracket, pertandingan resmi, dan lawan dari negara lain.
-
-
-kita tau usia pimaa pro player  itu di kisara 18 sampe 25 
-tapi 
-di hard bardie 
-
-lu  pada.... sadar ga si , kita tu jarang banget  liat pro player yang umur nya diatas  30 tahunan 
-tapi kira kira usia pro player tu bisa sampe berapa ?
-pertama lu harus kanalan dulu sama mbah abbe borg 78 tahun csgo senior dreamhack 
-
-
-
-
-
-ya kebanyakan pro player itu umur prima nya cuma  di kisaran 16 sampe 25 tahun , selebihnya 
-tapi kira kira ada ga si sampe yang tua banget 
-ooo jelas adda kenalin 
-kenalin 
-kenali  kakek ini namanya 
-
-loh suupprt ini kok mirip cosplayer yabai yak 
-nah jadi  vlinder 
-
-yang kitnya bakal lebih optimal
-kalo dipake di operation 
-skil riveive nya doi bisa rivive dari ajrak  jauh jadi cocok banget buat 
-healing nya deres 
-smoke nya panjang 
-keknya gw bakal buang jauh jauh stringer si di season 8 ini 
-
-
-nah map ini tu adlah fasilitas havx yang gagal  buat  manipualasi  glomang seismik
-yang ngebuatg gempa terjadi terus meerus dimap ini
-
-sesauia namanya map ini adalah fasilitas havx yang gagal  buat  manipualasi  glomang seismik 
-
-
-
-nya  nya adalahpengaktifkan server di site b
-dan kalian butuh  3 x aktifin 
-sedikit berguncang di aktifasi ke 2
-
-
-
-
-
-
-
-
-yang butuh ditampol pake misil dulu..... baru bergertar 
-nih map udah bergetar sendiri dari sononya 
-
-
-
-
-
-
-
-
-
- menurutlu 10 detik itu singkat coba rivive emen lu seblum lawanya wip itu berasa ama banget  
-
-
+Salah satu anggotanya adalah Abbe Borg, dengan nickname DieHardBirdie. Saat itu usianya sudah di atas 70 tahun. Mereka bukan sekadar tampil untuk hiburan, tetapi benar-benar bertanding dengan format kompetitif seperti turnamen pada umumnya: ada sistem bracket, pertandingan resmi, dan lawan dari negara lain
 
 
 
