@@ -106,6 +106,11 @@ pastikan kalian ambil 3 biji dengan harga satu jutaan , langkah selanjutnya ting
 
 //maret//
 7
+ternyata jadi pro player tu gampang , asal kalian debut nya duluan 
+dan kebetulan banget delta force baru aja buka pendaftaran dnfc season 2 
+yang dibagi  jadi 3 jalur 
+
+
 
 
 
