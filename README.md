@@ -106,13 +106,14 @@ pastikan kalian ambil 3 biji dengan harga satu jutaan , langkah selanjutnya ting
 
 //maret//
 7
-kalian tau ngga si ternyata jadi pro player tu gampang , asal mau debut  duluan 
-dan kebetulan banget
+kalian tau ngga si ternyata jadi pro player tu gampang , asal mau debut  duluan dan networking 
+nah kebetulan banget
 delta force baru aja buka pendaftaran dnfc season 2 
 buat warfere ......operation  sama jalur campus 
 kalian juga bebas bisa daftar di segmen mobile maupun pc ,semua  pendaftaran gratis dan terbuka buat umum
-pokonya jangan sampe kelewatan karena  registrasi bakalan di tutup tanggal 13 maret  nannti  
-buat link nya udah  gw taroh di kolom komentar 
+pokonya jangan sampe kelewatan lagi   karena  registrasi bakalan di tutup tanggal 13 maret  nannti  
+dan ada kemungkinan juga ini adalh tiket masuk buat qualifer internasional kaya di dnfc season1 
+link nya udah  gw taroh di kolom komentar 
 dan kalo mau  lebih detail  kalian bisa cek aja langsung di sosmed garena dfid 
 
 
