@@ -116,6 +116,10 @@ dan ada kemungkinan juga ini adalh tiket masuk buat qualifer internasional kaya 
 link nya udah  gw taroh di kolom komentar 
 dan kalo mau  lebih detail  kalian bisa cek aja langsung di sosmed garena dfid 
 
+8 
+ada ga si senjata murah tapi enak buat ngersuh , ada dong , 
+ini dia p90
+dengan rpm hampir 900 dan dilengkapi devalt  magazin 50 tinggal pasanag sekop aja enka banmget   
 
 
 
