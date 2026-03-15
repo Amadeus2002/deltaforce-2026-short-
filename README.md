@@ -117,7 +117,7 @@ link nya udah  gw taroh di kolom komentar
 dan kalo mau  lebih detail  kalian bisa cek aja langsung di sosmed garena dfid 
 
 8 
-kenapa di operation pada ngelewatin npc havx
+kenapa di  operation pada ngelewatin npc havx
 padahal chance item merahnya lebih gede dari pada yang ada  di save box 
 seriusan 
 bahkan dari semua match yang gua laluin gw bisa bilang  6 dari 10  match nya 
