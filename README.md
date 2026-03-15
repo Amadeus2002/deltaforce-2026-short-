@@ -117,6 +117,17 @@ link nya udah  gw taroh di kolom komentar
 dan kalo mau  lebih detail  kalian bisa cek aja langsung di sosmed garena dfid 
 
 8 
+kenapa di operation pada ngelewatin npc havx
+padahal chance item merahnya lebih gede dari pada yang ada  di save box 
+seriusan 
+bahkan dari semua match yang gua laluin gw bisa bilang  6 dari 10  match nya 
+pasti muncul item merah
+
+
+
+
+
+
 ada ga si senjata murah tapi enak buat ngersuh , ada dong , 
 ini dia p90
 dengan rpm hampir 900 dan dilengkapi devalt  magazin 50 tinggal pasanag sekop aja enka banmget   
