@@ -117,11 +117,17 @@ link nya udah  gw taroh di kolom komentar
 dan kalo mau  lebih detail  kalian bisa cek aja langsung di sosmed garena dfid 
 
 8 
-kenapa di  operation pada ngelewatin npc havx
+kenapa ya di  operation orang orang  pada ngelewatin npc havx
 padahal chance item merahnya lebih gede dari pada yang ada  di save box 
 seriusan 
 bahkan dari semua match yang gua laluin gw bisa bilang  6 dari 10  match nya 
-pasti muncul item merah
+pasti muncul item merah 
+dan yang paling sering muncul kepala buaya 
+nah jadi sekarang tu kan  lagi ada  event hudson cutbacks  yang bikin 
+beberapa squad havx bakalan turun  di 3 map 
+zero dam layali ama brakes 
+buat di zero dam turun di cment plant ama major 
+kalo di brakes turun nya di blakang grand haman depan musium
 
 
 
