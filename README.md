@@ -120,14 +120,20 @@ dan kalo mau  lebih detail  kalian bisa cek aja langsung di sosmed garena dfid
 kenapa ya di  operation orang orang  pada ngelewatin npc havx
 padahal chance item merahnya lebih gede dari pada yang ada  di save box 
 seriusan 
-bahkan dari semua match yang gua laluin gw bisa bilang  6 dari 10  match nya 
-pasti muncul item merah 
-dan yang paling sering muncul kepala buaya 
-nah jadi sekarang tu kan  lagi ada  event hudson cutbacks  yang bikin 
-beberapa squad havx bakalan turun  di 3 map 
-zero dam layali ama brakes 
-buat di zero dam turun di cment plant ama major 
-kalo di brakes turun nya di blakang grand haman depan musium
+jadi sekarang tu kan  lagi ada  event hudson cutbacks yang bikin squad havx invasi ke beberapa map 
+dan dari semua match yang gua laluin gw bisa bilang  6 dari 10  match nya 
+pasti bakalan dapet  item merah 
+bahkan temen temen  party gw seing banget dapet kepala buaya di sini 
+buat  map  nya sendiri  ada di  zero dam  brakes ama layali
+di zero dam mereka bakalan turun di 2 tempat  di belakang  cment plant ama  di tengah major     untuk  waktu keluarnya sekitar 5 menit match berjalan     kadang bisa  lebih cepet juga si 
+dab buat  di brakes
+ada 3 tempat drop  poin  
+pertama di blakang grand haman
+yang ke 2 di depan musium
+dan yang ke 3 ada di gerbang masuk tower babel sebelah kanan 
+kalo di layali keknya mending buang jauh jauh aja deh karena setelah gw cobain drop rate nya jadi turun di mode easy 
+nah  jadi 
+
 
 
 
