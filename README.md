@@ -135,7 +135,9 @@ dan kusus  di layali keknya mending kalian  buang jauh jauh aja deh
 karena setelah gw cobain di mode easy  drop rate nya tu jadi ikutan  turun 
 nah  jadi 
 
-
+bingung cara buka ruangan yang ada code nya 
+teanang  kalian cuma perlu  ketik delta force tool di gogle 
+dan 
 
 
 
