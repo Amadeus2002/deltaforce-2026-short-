@@ -135,6 +135,17 @@ dan kusus  di layali keknya mending kalian  buang jauh jauh aja deh
 karena setelah gw cobain di mode easy  drop rate nya tu jadi ikutan  turun 
 nah  jadi 
 
+gw kadang suka bingung. gimana cara buka ruangan yang ada codenya
+sampe kemarin gw buka website yang namanya  delta force tool 
+ketik aja di gogle tar dia bakal keluar paling atas kok 
+ni website nyediaiin daily code dari setiap map 
+ngga cuma itu aja web ini juga nyediain map interaktif yang 
+nunjukin probilitas tempat spawn red item 
+yang bakalan ngebantu banget buat farming item merah 
+
+btw di df ruangan yang ada code nya di bagi jadi 2 macem 
+
+
 masih bingung cara buka ruangan yang ada code nya 
 padaahal  kalian cuma perlu serch aja  delta force tool di gogle 
 dan nanti bakalam muncul sebuah website 
