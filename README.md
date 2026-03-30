@@ -147,8 +147,8 @@ btw di df ruangan yang ada code nya di bagi jadi 2 macem
 
 
 masih bingung cara buka ruangan yang ada code nya 
-padaahal  kalian cuma perlu serch aja  delta force tool di gogle 
-dan nanti bakalam muncul sebuah website 
+padaahal  kalian tu  cuma perlu serch   di gogle  dengan keyword delta force tool
+dan nantiny akalian  bakalan nemuin  sebuah website 
 yang nyediain daily code dari setiap map 
 ngga cuma itu aja web ini juga nyediain map interaktif yang 
 nunjukin probilitas tempat spawn red item 
