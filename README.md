@@ -133,7 +133,7 @@ yang ke 2 di depan musium
 dan yang ke 3 ada di gerbang masuk tower babel sebelah kanan 
 dan kusus  di layali keknya mending kalian  buang jauh jauh aja deh 
 karena setelah gw cobain di mode easy  drop rate nya tu jadi ikutan  turun 
-nah  jadi 
+nah  jadi, 
 
 gw kadang suka bingung. gimana cara buka ruangan yang ada codenya
 sampe kemarin gw buka website yang namanya  delta force tool 
@@ -143,9 +143,6 @@ ngga cuma itu aja web ini juga nyediain map interaktif yang
 nunjukin probilitas tempat spawn red item 
 yang bakalan ngebantu banget buat farming item merah 
 
-btw di df ruangan yang ada code nya di bagi jadi 2 macem 
-
-
 masih bingung cara buka ruangan yang ada code nya 
 padaahal  kalian tu  cuma perlu serch   di gogle  dengan keyword delta force tool
 dan nantiny akalian  bakalan nemuin  sebuah website 
@@ -154,7 +151,10 @@ ngga cuma itu aja web ini juga nyediain map interaktif yang
 nunjukin probilitas tempat spawn red item 
 bakalan ngebantu banget buat farming item merah 
 
-
+ 9
+ top 6 kunci keramat di zerodam
+ pertama  suttaion dormitory ,inimah langsung aja cokk...  s tier 
+ harganya cuma 32000 tapi isinya 
 
 
 
