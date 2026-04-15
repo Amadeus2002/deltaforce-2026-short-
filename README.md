@@ -154,7 +154,12 @@ bakalan ngebantu banget buat farming item merah
  9
  top 6 kunci keramat di zerodam
  pertama  suttaion dormitory ,inimah langsung aja cokk...  s tier 
- harganya cuma 32000 tapi isinya 
+ harganya cuma 32000  tapi ssinya kebanyakan key card mahal ,jadi  lebih mirip reroll buat dapetin kartu  yang lebih bagus
+ yang ke 2 , major subtation s tier 
+ harganya mahal  si tapi worth it karena kalian bisa ngintip dulu isinya lewat cendela 
+ yang ke 3 east wing kunci termahala 
+ 
+
 
 
 
