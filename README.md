@@ -159,7 +159,12 @@ bakalan ngebantu banget buat farming item merah
  harganya mahal  ......tapi worth it bisa ngintip isinya lewat cendela 
  nomero tris  east wing maneger terus ternag gw ga terlalu suka kunci ini karena  buat balik modal seengganya  harus dapet tiga ratus ribu setiap kali buka 
  tapi ini  memang tempat spawn hoa  si  (A tier)
- nomer 4 cment plan officer , mirip kek subtattiodormitory kalian bisa dapet kunci bagus di mejanya 
+ nomer 4 cment plan officer , mirip kek subtattiodormitory kalian bisa dapet kunci bagus di mejanya s tier 
+
+10 
+giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi 
+iya ini benerna kejadian di thuan 2025 lalu , tepatnya  di     china  
+jadi ada beberapa anak muda yang main delta force tapi ngecit dengan nge bypas 
 
  
 
