@@ -152,12 +152,15 @@ nunjukin probilitas tempat spawn red item
 bakalan ngebantu banget buat farming item merah 
 
  9
- top 6 kunci keramat di zerodam
- pertama  suttaion dormitory ,inimah langsung aja cokk...  s tier 
- harganya cuma 32000  tapi ssinya kebanyakan key card mahal ,jadi  lebih mirip reroll buat dapetin kartu  yang lebih bagus
- yang ke 2 , major subtation s tier 
- harganya mahal  si tapi worth it karena kalian bisa ngintip dulu isinya lewat cendela 
- yang ke 3 east wing kunci termahala 
+ top 4 kunci keramat di zerodam
+ pertama  suttaion dormitory ,inimah langsung ae cokk...  s tier 
+ harganya cuma 32000  tapi ssinya kebanyakan key card mahal ,jadi  lebih mirip reroll buat dapetin kartu  yang lebih bagus aja git7u 
+ yang ke 2 , major subtation, kategoi s tier 
+ harganya mahal  ......tapi worth it bisa ngintip isinya lewat cendela 
+ nomero tris  east wing maneger terus ternag gw ga terlalu suka kunci ini karena  buat balik modal seengganya  harus dapet tiga ratus ribu setiap kali buka 
+ tapi ini  memang tempat spawn hoa  si  (A tier)
+ nomer 4 cment plan officer , mirip kek subtattiodormitory kalian bisa dapet kunci bagus di mejanya 
+
  
 
 
