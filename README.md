@@ -166,7 +166,12 @@ giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi
 iya ini benerna kejadian di thuan 2025 lalu , tepatnya  di     china  
 jadi ada beberapa anak muda yang main delta force tapi ngecit dengan nge bypas 
 
- 
+11
+tierlist mellee di delta force 
+mungkin kalian udah pernah liat buatan orang thailand , tapi jujur aja gw kurang setuju dengan beberapa hal 
+
+dan klo lagi mgomongin
+
 
 
 
