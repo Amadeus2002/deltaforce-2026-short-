@@ -171,14 +171,14 @@ jadi ada beberapa anak muda yang main delta force tapi ngecit dengan nge bypas
 2 item limited aneh yang kalian bisa datin di event brust fest delta force 
 pertama ada cabe cabeaan, ni item tu  bisa di daptein dari npc rocketer  yang  ngamen keliling map , 
 dan untungnya kita  bisa nemuin pengamen ini dengan mudah di zero dam , dia bakalan muter di samping tembok area cement plant   sama di samping kanan major subtattion 
-ya pokonya kalo liat mah  langsung di gedik  ae  kareana spice nya di dalem tas  btw  kalian juga bisa dapetin item cabe cabean ini dari ngekil boss map  
+ya pokonya kalo liat mah  langsung di gedik  ae  kareana spice nya di dalem tas btw  kalian juga bisa dapetin item cabe cabean ini dari ngekil boss map  yak 
 dan itam limited yang ke 2 adalah trophy faksi  yang  bisa dapetin dari event id tag colection plan 
 sebenernya ada 6 macem tropy 
 tapi..... kategorinya cuma 2 
 standar sama elite 
 standar border pinggirnya silver
 dan yang elit pinggirnya warna emas
-jadi kalo dapet nya silver  mending kalian rerol aja
+jadi kalo dapet nya standard   mending di rerol aja sampe dapet warna emas 
 
 
 
