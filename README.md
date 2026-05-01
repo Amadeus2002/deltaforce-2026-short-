@@ -169,7 +169,35 @@ jadi ada beberapa anak muda yang main delta force tapi ngecit dengan nge bypas
 
 11
 2 item limited aneh yang kalian bisa datin di event brust fest delta force 
-spice salah satu yang bisa di displai di 
+pertama ada cabe cabeaan, ni item tu  bisa di daptein dari npc hot tail  yang  ngamen keliling map , 
+dan untungnya kita  bisa nemuin pengamen ini dengan mudah di zero dam , dia bakalan muter di samping tembok area cement plant      sama di samping kanan major subtattion 
+ya pokonya kalo liat mah  langsung di gedik  ae  biasanya spice ditaruh di dalem tas  nya 
+anyway kalian juga bisa dapetin item cabe cabean ini dari ngekil boss 
+
+
+dan itam limited yang ke 2 adalah trophy faksi  yang  bisa dapetin dari event id tag colection plan 
+sebenernya ada 6 macem tropy 
+tapi..... kategorinya cuma 2 
+standar sama elite 
+
+standar border pinggirnya silver
+dan yang elit pinggirnya warna emas
+jadi kalo dapet nya setandar  mending kalian rerol
+
+
+
+
+
+
+
+d dam bagian cment plant ama di sebelah kanan makor subtation 
+di brakes juag ada 2 titik 
+kadang  kalain juga  bisa dapetin spice  dari ngekill boss
+
+untuk mapnya sendiri 
+di zero dam kalain bisa temuin di area samping major subtataion sama 
+
+bos atau alaternatifnya  
 
 11
 tierlist mellee di delta force 
