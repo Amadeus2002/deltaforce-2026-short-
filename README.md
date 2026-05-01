@@ -166,6 +166,11 @@ giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi
 iya ini benerna kejadian di thuan 2025 lalu , tepatnya  di     china  
 jadi ada beberapa anak muda yang main delta force tapi ngecit dengan nge bypas 
 
+
+11
+2 item limited aneh yang kalian bisa datin di event brust fest delta force 
+spice salah satu yang bisa di displai di 
+
 11
 tierlist mellee di delta force 
 mungkin kalian udah pernah liat buatan orang thailand , tapi jujur aja gw kurang setuju dengan beberapa hal 
@@ -180,6 +185,7 @@ dan klo lagi mgomongin
 ada ga si senjata murah tapi enak buat ngersuh , ada dong , 
 ini dia p90
 dengan rpm hampir 900 dan dilengkapi devalt  magazin 50 tinggal pasanag sekop aja enka banmget   
+
 
 
 
