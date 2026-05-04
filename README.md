@@ -135,14 +135,7 @@ dan kusus  di layali keknya mending kalian  buang jauh jauh aja deh
 karena setelah gw cobain di mode easy  drop rate nya tu jadi ikutan  turun 
 nah  jadi, 
 
-gw kadang suka bingung. gimana cara buka ruangan yang ada codenya
-sampe kemarin gw buka website yang namanya  delta force tool 
-ketik aja di gogle tar dia bakal keluar paling atas kok 
-ni website nyediaiin daily code dari setiap map 
-ngga cuma itu aja web ini juga nyediain map interaktif yang 
-nunjukin probilitas tempat spawn red item 
-yang bakalan ngebantu banget buat farming item merah 
-
+9
 masih bingung cara buka ruangan yang ada code nya 
 padaahal  kalian tu  cuma perlu serch   di gogle  dengan keyword delta force tool
 dan nantiny akalian  bakalan nemuin  sebuah website 
@@ -150,6 +143,43 @@ yang nyediain daily code dari setiap map
 ngga cuma itu aja web ini juga nyediain map interaktif yang 
 nunjukin probilitas tempat spawn red item 
 bakalan ngebantu banget buat farming item merah 
+
+
+10
+2 item limited aneh yang kalian bisa datin di event brust fest delta force 
+cabe cabeaa n,  item ini  bisa di daptein dari ngekill boss ataupun  npc rocketer  yang  ngamen keliling map 
+ksusus di zero dam   mereka bakal mutter  di samping tembok area cement plant   sama di samping kanan,major subtattion 
+buat di  brakes ada di depan pintu masuk tower of babel , sama area blue river 
+kalo di layalai , ya gwa belum  cobain si , jadi kalo lu tau  bisa tulus  di kolom komentar yak 
+dan item limit yang ke 2 adalah trophy faksi  yang  bisa dapetin dari event id tag colection plan 
+sebenernya ada 6 macem tropy 
+tapi..... kategorinya cuma 2 
+standar sama elite 
+standar border pinggirnya silver
+dan yang elit pinggirnya warna emas
+jadi kalo dapet nya standard   mending di rerol aja sampe dapet warna emas soalnya kita  dikasih kesempatan buat  milih maksimal  2 trophy di event ini
+
+11 
+ada satu attachmen  yang  jadi kuci gameplay fast paced di delta foece 
+buat kalian yang rolenya rusher
+mungkin udah sadar banget  kecepatan ads scope  ..... kunci buat menaang duel
+dan itu semua kita bisa dapetin dari stat handeling , yang dimana ada 
+
+ 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
  9
  top 4 kunci keramat di zerodam
@@ -165,22 +195,6 @@ bakalan ngebantu banget buat farming item merah
 giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi 
 iya ini benerna kejadian di thuan 2025 lalu , tepatnya  di     china  
 jadi ada beberapa anak muda yang main delta force tapi ngecit dengan nge bypas 
-
-
-11
-2 item limited aneh yang kalian bisa datin di event brust fest delta force 
-cabe cabeaa n,  item ini  bisa di daptein dari ngekill boss ataupun  npc rocketer  yang  ngamen keliling map 
-ksusus di zero dam   mereka bakal mutter  di samping tembok area cement plant   sama di samping kanan,major subtattion 
-buat di  brakes ada di depan pintu masuk tower of babel , sama area blue river 
-kalo di layalai , ya gwa belum  cobain si , jadi kalo lu tau  bisa tulus  di kolom komentar yak 
-
-dan item limit yang ke 2 adalah trophy faksi  yang  bisa dapetin dari event id tag colection plan 
-sebenernya ada 6 macem tropy 
-tapi..... kategorinya cuma 2 
-standar sama elite 
-standar border pinggirnya silver
-dan yang elit pinggirnya warna emas
-jadi kalo dapet nya standard   mending di rerol aja sampe dapet warna emas soalnya kita  dikasih kesempatan buat  milih maksimal  2 trophy di event ini
 
 
 
