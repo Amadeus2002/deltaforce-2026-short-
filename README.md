@@ -162,10 +162,8 @@ jadi kalo dapet nya standard   mending di rerol aja sampe dapet warna emas soaln
 11 
 ada satu attachmen  yang  jadi kuci gameplay fast paced di delta foece 
 buat kalian yang rolenya rusher
-mungkin udah sadar banget  kecepatan ads scope  ..... kunci buat menaang duel
-dan itu semua kita bisa dapetin dari stat handeling , yang dimana ada 
-
- 
+mungkin udah sadar banget kalo  kecepatan ads scope  adalah kunci buat menaang duel 
+dan itu semua di dapetin dari stat handelinng maslahnya handeling dibawah 40  
 
 
 
