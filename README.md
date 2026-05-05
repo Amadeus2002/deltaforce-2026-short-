@@ -165,9 +165,8 @@ buat kalian gampelaynya nabrak nabrak atau  rolenya rusher mungkin udah sadar ba
 dan kira kira  apa  yang  ningkatin kecepatan  ads ?iya stat handeling 
 tapi masalahnya ketika stat handeling ini ada di bawah 45 ads bakalan mulai  kerasa berart 
 dan  disini kita mulai butuhin laser buaat ngebuff handelingnya  
-lah bang tapi kan kalo dipasang     handelingnya jadi minus
-nah iya bener 
-tapi ketika kondisi lasernya nyala stat minus ini bakalan  berubah jadi buff handeliing  ama  stabilitas
+lah bang tapi kan kalo dipasang   laser  handelingnya kan  jadi minus
+nah iya bener tapi ketika kondisi  nyala stat minus ini bakalan  berubah jadi buff handeliing  ama  stabilitas
 sebagai contoh gw pasang  laser di baret yang stat 
 
 
