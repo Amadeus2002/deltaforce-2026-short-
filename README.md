@@ -161,11 +161,15 @@ jadi kalo dapet nya standard   mending di rerol aja sampe dapet warna emas soaln
 
 11 
 ada satu attachmen  yang  jadi kuci gameplay fast paced di delta foece 
-buat kalian yang rolenya rusher
-mungkin udah sadar banget kalo  kecepatan ads scope  adalah kunci buat menaang duel 
-dan itu semua di dapetin dari stat handelinng maslahnya handeling dibawah 40  
+buat kalian gampelaynya nabrak nabrak atau  rolenya rusher mungkin udah sadar banget kalo kecepatan ads scope adalah kunci buat menang duel 
+dan kira kira  apa  yang  ningkatin kecepatan  ads ?iya bener banget  stat handeling 
+dan masalahnya ketika stat handeling ini ada di bawah 45 maka ads buka scoper kalian  bakalana  mulai keerasa delay 
+dan disilah attachmen laser hadir buat jadi buff  
 
 
+
+
+jadi janagan heran kalo lu di tabrak m250 yang handeling nya berat itu tapi ads nya cepat iya itu karean laser 
 
 
 
