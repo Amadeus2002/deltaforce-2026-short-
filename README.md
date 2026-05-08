@@ -163,14 +163,12 @@ jadi kalo dapet nya standard   mending di rerol aja sampe dapet warna emas soaln
 ada satu attachmen  yang  jadi kuci gameplay fast paced di delta foece 
 buat kalian gampelaynya nabrak nabrak atau  rolenya rusher mungkin udah sadar banget kalo kecepatan ads scope adalah kunci buat menang duel 
 dan kira kira  apa  yang  ningkatin kecepatan  ads ?iya stat handeling 
-tapi masalahnya ketika stat handeling ini ada di bawah 45 ads bakalan mulai  kerasa berart 
-dan  disini kita mulai butuhin laser buaat ngebuff handelingnya  
-lah bang tapi kan kalo dipasang   laser  handelingnya kan  jadi minus
-nah iya bener tapi ketika kondisi  nyala stat minus ini bakalan  berubah jadi buff handeliing  ama  stabilitas
-sebagai contoh gw pasang  laser di baret yang stat 
-
-
-
+tapi masalahnya ketika stat handeling ini ada di bawah 45 ads kalian  bakalan mulai  kerasa berart 
+dan  disini kita mulai butuhin attachmen laser buaat ngebuff handelingnya  
+lah bang tapi kan kalo dipasang   laser  handelingnya malah   jadi minus
+iya bener banget  ........tapi pas kondisi  nyala stat minus ini bakalan  berubah jadi buff handeliing  ama  stabilitas
+kalaian bisa liat sendiri  kecepatan ads nya bakalan lebih cepet pas pake laser.... dan perubahan sekecil ini tu  bisa ngubah alur permainan 
+jadi janagan heran meta  m250 yang senjatanya berat .... bisa buat maju maju 
 
 
 jadi buff handeliing  ama  stabilitas
