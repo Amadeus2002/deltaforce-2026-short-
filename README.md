@@ -168,8 +168,8 @@ dan  disini kita mulai butuhin attachmen laser buaat ngebuff handelingnya
 lah bang tapi kan kalo dipasang   laser  handelingnya malah   jadi minus
 iya bener banget  ........tapi pas kondisi  nyala stat minus ini bakalan  berubah jadi buff handeliing  ama  stabilitas
 kalaian bisa liat sendiri  kecepatan ads nya bakalan lebih cepet pas pake laser.... dan perubahan sekecil ini tu  bisa ngubah alur permainan 
-jadi janagan heran meta  m250 yang senjatanya berat .... bisa buat maju maju 
-
+jadi janagan heran m250 yang senjatanya berat .... bisa buat maju maju 
+dan satu lagi dengan laser   
 
 jadi buff handeliing  ama  stabilitas
 
