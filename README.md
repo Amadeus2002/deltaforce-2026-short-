@@ -171,19 +171,20 @@ iya bener banget  ........tapi pas kondisi  nyala stat minus ini bakalan  beruba
 kalaian bisa liat sendiri  kecepatan ads nya tu  bakalan lebih cepet pas pake laser.... dan perubahan yang  sekecil ini  bisa ngubah alur permainan 
 jadi janagan heran kalo senjata senjatanya berat kaya m25o .... bisa enak buat ngerush  
 
-
-bahas penggunaan tokrn kunci  di event lara 
-selama priode ini sampe 14 juni nanti
-kalaian bisa nemuin kunci emas das dan nkunci unggu dari tempat prnggalan treasure 
+12
+bahas penggunaan tokrn kunci  di event lara, 
+selama priode ini sampe 14 juni nanti,
+kalaian bisa nemuin kunci emas das dan nkunci unggu dari tempat prnggalan treasure ,
 sebenernya ada 8 titik di stiap mapnya....
-tapi biasanya cuma ada 2 galian doang  yang isisnya kunci 
-dan buat penggunaanya nya kalian  perlu cari  patung berhala yang nybar di  masing masing map 
-kalo di zero  dam ada 4 titik si 
-dan tinggal kalian storin 
-kunci unggu bakal ngasih kalian , item unggu / iitem kuning 
-kunci emas bakalan  ngasih item kuning /item merah 
-dan kunci merah bakalan otomatis dapetin chibi laracroft merah 
-
+tapi biasanya cuma ada 2 galian doang  yang isisnya kunci, 
+dan buat penggunaanya nya
+kalian  perlu cari  patung berhala yang ada  di  masing masing map 
+kalo di zerodam sendiri ada 4 titik berrhala si ,,,,
+jadi kalain bisa drop  kunci nya disana 
+kunci unggu bakal ngasih kalian , item rarity ungu  ataupun emas 
+sedangkan kunci emas  ,punya probilitas buat dapetin  vigure laracroft standard ,tapi ini ngga di jamin ya 
+jadi bisa aja   dapetnya item emas ataupun item mereah 
+dan terahir kalian bisa dapetin kunci merah lewat exchange key of pack yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted 
 
 
 
