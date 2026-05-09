@@ -179,12 +179,12 @@ sebenernya ada 8 titik di stiap mapnya....
 tapi biasanya cuma ada 2 galian doang  yang isisnya kunci, 
 dan buat penggunaanya nya
 kalian  perlu cari  patung berhala yang ada  di  masing masing map 
-kalo di zerodam sendiri ada 4 titik berrhala si ,,,,
-jadi kalain bisa drop  kunci nya disana 
+kalo di zerodam sendiri ada 4 titik berrhala  dan kalain bisa drop  kunci nya disana 
 kunci unggu bakal ngasih kalian , item rarity ungu  ataupun emas 
 sedangkan kunci emas  ,punya probilitas buat dapetin  vigure laracroft standard ,tapi ini ngga di jamin ya 
 jadi bisa aja   dapetnya item emas ataupun item mereah 
-dan terahir kalian bisa dapetin kunci merah lewat exchange key of pack yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted 
+dan terahir ...kalian bisa dapetin kunci merah lewat exchange key of pack
+yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted 
 
 
 
