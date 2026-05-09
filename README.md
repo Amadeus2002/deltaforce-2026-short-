@@ -172,18 +172,17 @@ kalaian bisa liat sendiri  kecepatan ads nya tu  bakalan lebih cepet pas pake la
 jadi janagan heran kalo senjata senjatanya berat kaya m25o .... bisa enak buat ngerush  
 
 
-
-dan satu lagi dengan laser   
-
-jadi buff handeliing  ama  stabilitas
-
-
-
-
-
-
-
-jadi janagan heran kalo lu di tabrak m250 yang handeling nya berat itu tapi ads nya cepat iya itu karean laser 
+bahas penggunaan tokrn kunci  di event lara 
+selama priode ini sampe 14 juni nanti
+kalaian bisa nemuin kunci emas das dan nkunci unggu dari tempat prnggalan treasure 
+sebenernya ada 8 titik di stiap mapnya....
+tapi biasanya cuma ada 2 galian doang  yang isisnya kunci 
+dan buat penggunaanya nya kalian  perlu cari  patung berhala yang nybar di  masing masing map 
+kalo di zero  dam ada 4 titik si 
+dan tinggal kalian storin 
+kunci unggu bakal ngasih kalian , item unggu / iitem kuning 
+kunci emas bakalan  ngasih item kuning /item merah 
+dan kunci merah bakalan otomatis dapetin chibi laracroft merah 
 
 
 
