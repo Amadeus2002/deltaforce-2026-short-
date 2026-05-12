@@ -186,13 +186,11 @@ jadi bisa aja   dapetnya item emas ataupun item mereah
 dan terahir ...kalian bisa dapetin kunci merah lewat exchange key of pack
 yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted 
 
-
-
-
-
-
-
-
+13
+giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi 
+dan ya ini benerna kejadian di china desember lalu 
+jadi gini ceritaya 
+ada sekelaompok anak muda yang manfaarin c
 
 
 
