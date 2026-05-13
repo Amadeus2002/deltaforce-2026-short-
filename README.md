@@ -188,9 +188,8 @@ yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted
 
 13
 giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi 
-dan ya ini benerna kejadian di china desember lalu 
-jadi gini ceritaya 
-ada sekelaompok anak muda yang manfaarin c
+dan ini tu  benerna kejadian di china desember lalu 
+jadi ada sekelaompok anak muda yang  
 
 
 
@@ -207,9 +206,10 @@ ada sekelaompok anak muda yang manfaarin c
 
 10 
 giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi 
-iya ini benerna kejadian di thuan 2025 lalu , tepatnya  di     china  
-jadi ada beberapa anak muda yang main delta force tapi ngecit dengan nge bypas 
-
+iya ini benerna kejadian  di china desember lalu   
+jadi sekelompok remaja di china manfaatin  dma 
+simpelnya perangkat ini memungkinkan kalian pake cheat tapi cheat nya ngga di komputer kalian 
+lah gimana tuh  jadi ngecheat apa kaga 
 
 
 
