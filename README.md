@@ -189,11 +189,13 @@ yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted
 13
 giman jadinya kalo  lagi main game  tiba tiba kena rodok   sama  polisi 
 dan ini  beneran kejadian di china desember lalu 
-jadi ada sekelompok anak muda yangcobain  make teknologi DMA buat nipu sistem keamanan game di  deltaforce 
+jadi ada sebuah perangkat yang namanya DMA dan beberapa pemuda disana ngide buat  ngakalin sistem keamanan  delta force pake perangkat ini  
+
+cara kerjanya gini
 mereka pakai 2 komputer sekaligus 
-satu buat main game,
+satu buat main game dan dipasangin dma ,
 satunya lagi jalanin sistem di belakang layar.
-jadi anti-cheat bakalan ngira komputer utama nya bersih
+jadi sistem kemanan gamenya bakalan ngira komputer utama nya bersih
 dan teknologi ini mereka manfaatin buat buka jasa joki.
 kabarnya si mereka udah dapet sekitar 100 ribu yuan dari hasil jokinya.
 tapi lama-lama aksinya kecium juga .
@@ -202,7 +204,7 @@ jadi giaman menurut kalian apakah sisitem anti cheat di delta force tu bagus ?
 
 
 
-
+buat nipu sistem keamanan game di  deltaforce 
 
  9
  top 4 kunci keramat di zerodam
