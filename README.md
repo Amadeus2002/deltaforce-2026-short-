@@ -187,9 +187,18 @@ dan terahir ...kalian bisa dapetin kunci merah lewat exchange key of pack
 yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted 
 
 13
-giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi 
-dan ini tu  benerna kejadian di china desember lalu 
-jadi ada sekelaompok anak muda yang  
+giman jadinya kalo  lagi main game  tiba tiba kena rodok  sama  polisi 
+dan ini  beneran kejadian di china desember lalu 
+jadi ada sekelompok anak muda yang make teknologi DMA buat nipu sistem keamanan game di  deltaforce 
+mereka pakai 2 komputer sekaligus ya.
+satu buat main game,
+satunya lagi jalanin sistem di belakang layar.
+jadi anti-cheat bakalan ngira komputer utama nya bersih
+terus mereka manfaatin cheatnya buat buka joki
+jadilah kecium 
+
+
+
 
 
 
