@@ -188,17 +188,18 @@ yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted
 
 13
 giman jadinya kalo  lagi main game  tiba tiba kena rodok   sama  polisi 
-dan ini  beneran kejadian di china pasa desember lalu 
-jadi ada sebuah perangkat yang namanya Dma 
-simpelnya perangkat ini tu memungkinkan kita buat nipu sisitem ke amanan di suatu game 
-cara kerjanya juga simpel karena kita   cuma perlu siapin 2 komputer  buat  digabungin pake display fuser
-pc utama dipasangin dma card dan dipake buat ngegame kaya bisa   ,
-sementara pc satunya lagi dipake buat jalanin cheat 
-Karena cheat dijalankan di komputer terpisah, sistem anti-cheat game   bakal ngira PC utama tetap bersih.
+dan ini  beneran kejadian di china pas  desember lalu 
+jadi kamarin tu sempet rame  soal perangkat  yang namanya Dma 
+simpelnya perangkat ini  memungkinkan kita buat nipu sisitem ke amanan di suatu game 
+cara kerjanya juga simpel karena kita   cuma perlu siapin 2 komputer  buat di jadiin 1  pake display fuser
+pc utamanya itu dipasangin perangkat dma card  dan dipake ngegame kaya bisa   ,
+sementara pc satunya , dipake buat jalanin program cheat 
+Karena cheat dijalankan di komputer terpisah, sistem anti-cheat game bakalan   ngira kalo  PC utama tetap bersih.
 Nah dengan metode  ini sekelompok anak muda dicihina  mulai manfaatin perangkatnya buat joki game Delta Force.
-Kabarnya mereka sempat raup untung sampai 250 jutaan.
-Tapi karena terlalu gencar promosi, bisnis mereka akhirnya kecium sama polisi cyber.
-Sampai akhirnya workspace mereka diparani admin GTI Security yang  yang kerja sama bareng  polisi.
+Kabarnya mereka udah  raup untung  sekitar 250 jutaan dari jokian doang .
+Tapi karena terlalu gencar promosi, bisnis mereka akhirnya kecium sama tim anti cheat nya delta force 
+dan pada  akhirnya workspace nya   diparani sama admin loh ya 
+btw giaman menurut kalian anti cheat df sekarang maskin bagus apa malah makin ampas ?
 
 
  9
