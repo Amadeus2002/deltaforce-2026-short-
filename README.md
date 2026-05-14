@@ -188,18 +188,17 @@ yang dimana ini bakaln ngejaminn drop rate  vigur laracroft limted
 
 13
 giman jadinya kalo  lagi main game  tiba tiba kena rodok   sama  polisi 
-dan ini  beneran kejadian di china desember lalu 
-jadi ada sebuah perangkat yang namanya DMA dan beberapa pemuda disana ngide buat  ngakalin sistem keamanan  delta force pake perangkat ini  
-
-cara kerjanya gini
-mereka pakai 2 komputer sekaligus 
-satu buat main game dan dipasangin dma ,
-satunya lagi jalanin sistem di belakang layar.
-jadi sistem kemanan gamenya bakalan ngira komputer utama nya bersih
-dan teknologi ini mereka manfaatin buat buka jasa joki.
+dan ini  beneran kejadian di china pasa desember lalu 
+jadi ada sebuah perangkat yang namanya Dma 
+simpelnya perangkat ini tu memungkinkan kita buat nipu sisitem ke amanan di suatu game 
+cara kerjanya juga simpel karena  cuma perlu siapin 2 komputer  buat  digabungin pake fuuser dma
+pc utama dipasangin dma card dan dipake buat ngegame kaya bisa   ,
+sementara pc satunya lagi dipake buat jalanin cheat 
+jadi sistem kemanan gamenya bakalan ngira komputer utama nya bersih dari cheat 
+dan beberapa geng  manfaatin ini buat buka jasa joki
 kabarnya si mereka udah dapet sekitar 100 ribu yuan dari hasil jokinya.
 tapi lama-lama aksinya kecium juga .
-dan tim GTI Security sama  polisi merodok lokasi mereka 
+dan tim GTI Security sama  polisi gabung buat cariin lokasi mereka 
 jadi giaman menurut kalian apakah sisitem anti cheat di delta force tu bagus ?
 
 
