@@ -202,22 +202,17 @@ dan pada  akhirnya workspace nya   diparani sama admin loh ya
 btw giaman menurut kalian anti cheat df sekarang maskin bagus apa malah makin ampas ?
 
 
- 9
- top 4 kunci keramat di zerodam
- pertama  suttaion dormitory ,inimah langsung ae cokk...  s tier 
- harganya cuma 32000  tapi ssinya kebanyakan key card mahal ,jadi  lebih mirip reroll buat dapetin kartu  yang lebih bagus aja git7u 
- yang ke 2 , major subtation, kategoi s tier 
- harganya mahal  ......tapi worth it bisa ngintip isinya lewat cendela 
- nomero tris  east wing maneger terus ternag gw ga terlalu suka kunci ini karena  buat balik modal seengganya  harus dapet tiga ratus ribu setiap kali buka 
- tapi ini  memang tempat spawn hoa  si  (A tier)
- nomer 4 cment plan officer , mirip kek subtattiodormitory kalian bisa dapet kunci bagus di mejanya s tier 
-
-10 
-giman jadinya kalo  lagi main game  tiba tiba di grebeg sama  polisi 
-iya ini benerna kejadian  di china desember lalu   
-jadi sekelompok remaja di china manfaatin  dma 
-simpelnya perangkat ini memungkinkan kalian pake cheat tapi cheat nya ngga di komputer kalian 
-lah gimana tuh  jadi ngecheat apa kaga 
+14
+5 kunci yang wajib kalian bawa kalo pas  main di  zerodam
+suttaion dormitory ,inimah langsung ae cokk...  s tier  harganya cuma 32 000  dan isi nya kebanyakan keycard  
+2 subtation tech room , kategoi s tier 
+underground passage 
+cement plant officer 
+eastwing manaagers office 
+harganya mahal  ......tapi worth it bisa ngintip isinya lewat cendela 
+nomero tris  east wing maneger terus ternag gw ga terlalu suka kunci ini karena  buat balik modal seengganya  harus dapet tiga ratus ribu setiap kali buka 
+tapi ini  memang tempat spawn hoa  si  (A tier)
+nomer 4 cment plan officer , mirip kek subtattiodormitory kalian bisa dapet kunci bagus di mejanya s tier 
 
 
 
