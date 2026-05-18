@@ -207,8 +207,9 @@ btw giaman menurut kalian anti cheat df sekarang maskin bagus apa malah makin am
 1 suttaion dormitory ,inimah langsung ae cokk...  s tier lokasi nya di belakang major subtation harganya paling murah, paling banyak spwn kuncinya , paling banyak kejutanya dan dijamin pasti  balik modal
 kunci  yang ke 2 gw bakal msukini subtation tech room  
 loksinya ada di major subtation  dan bagusnya  kunci ini  karena bisa di  intip  dulu lewat cendela pak 
-lanjut kunci yanng  3 underground passage  specialis buat gampleay taktical yang dimana kalian bisa jalanin strategi  third party ,buat ratain squad di dalem  admin , s tier 
-4 cement plant officer lokasinya ada dipojok kanan bawah cement plan dan kelebihan kunci ini ada di drop rate keycardnya  mirip  mirib subtation dormitory tapi rada mahalan dan bagusan  dikit 
+ehem lanjut kunci yanng  3 underground passage  isinya sbener bener  ampas  tapi cocok banget jadi jalur gampleay taktical 
+yang dimana kalian bisa jalanin strategi  third party ,buat ratain squad yang ada  di dalem  admin , s tier 
+4 cement plant officer lokasinya ada dipojok kanan bawah cement plan dan kelebihan kunci ini ada di drop rate keycardnya  mirip  mirib subtation dormitory tapi rada mahalan dan bagusan  dikit isinya 
 Dan kunci terakhir adalah East Wing Managers Office.
 Ini kunci paling mahal, belum tentu balik modal juga kalo kalian buka  .
 tapi  satu-satunya  yanng  bikin kunci  ini bagus cuma kareana,,,,,,, seing muncul hoa  disini  
