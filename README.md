@@ -205,8 +205,8 @@ btw giaman menurut kalian anti cheat df sekarang maskin bagus apa malah makin am
 14
 5 kunci yang wajib kalian bawa kalo pas  main di  zerodam
 1 suttaion dormitory ,inimah langsung ae cokk...  s tier lokasi nya di belakang major subtation harganya paling murah, paling banyak kuncinya , paling banyak kejutanya dan pastinya dijamin balik modal 
-2 subtation tech room,ini kunci anti scam si kalo gw bilang  ,lu bisa 
-
+2 subtation tech room,ini kunci anti scam kalian bisa intip dulu mejanya kalo mau buka biasnaya
+3
 underground passage kubnci ini  specialis buat gampleay taktical yang dimana kalian bisa ambus musuh dan jadi third party 
 cement plant officer 
 eastwing manaagers office 
