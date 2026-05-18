@@ -204,16 +204,14 @@ btw giaman menurut kalian anti cheat df sekarang maskin bagus apa malah makin am
 
 14
 5 kunci yang wajib kalian bawa kalo pas  main di  zerodam
-1 suttaion dormitory ,inimah langsung ae cokk...  s tier lokasi nya di belakang major subtation harganya paling murah, paling banyak kuncinya , paling banyak kejutanya dan pastinya dijamin balik modal 
-2 subtation tech room,ini kunci anti scam kalian bisa intip dulu mejanya kalo mau buka biasnaya
-3
-underground passage kubnci ini  specialis buat gampleay taktical yang dimana kalian bisa ambus musuh dan jadi third party 
-cement plant officer 
-eastwing manaagers office 
-harganya mahal  ......tapi worth it bisa ngintip isinya lewat cendela 
-nomero tris  east wing maneger terus ternag gw ga terlalu suka kunci ini karena  buat balik modal seengganya  harus dapet tiga ratus ribu setiap kali buka 
-tapi ini  memang tempat spawn hoa  si  (A tier)
-nomer 4 cment plan officer , mirip kek subtattiodormitory kalian bisa dapet kunci bagus di mejanya s tier 
+1 suttaion dormitory ,inimah langsung ae cokk...  s tier lokasi nya di belakang major subtation harganya paling murah, paling banyak spwn kuncinya , paling banyak kejutanya dan dijamin balik modal 
+2 subtation tech room, kunci ini  anti scam karena kalian bisa intip rewardnya dulu lewat cendela   biasnay si di mejanya bakalan ada kunci atau blade servernya jadi  jangan lupa buat di cek sebelum di buka 
+3 underground passage  specialis buat gampleay taktical yang dimana kalian bisa jalanin strategi  third party ,buat ratain squad di dalem  admin , s tier 
+4 cement plant officer lokasinya ada dipojok kanan bawah cement plan dan kelebihan kunci ini ada di drop rate keycardnya cuy lumayan gede
+5 Dan kunci terakhir ada East Wing Managers Office.
+Ini kunci paling mahal, harganya kisaran  3,7 jutaan.
+Kadang udah habisin semua kunci juga belum tentu balik modal. 
+dan satu-satunya  yanng  bikin kunci  ini bagus cuma karean  hoa seing muncul disini 
 
 
 
