@@ -216,7 +216,16 @@ tapi  satu-satunya  yanng  bikin kunci  ini bagus cuma kareana,,,,,,, seing munc
 
 
 
-15
+15 
+meta penyu di delta force 
+keanapa baru baru ini mulai muncul meta sineva kura kura 
+gw bakial bahas dulu mulai meta  sineva pemancing di space cituy  
+mungkin sebagian kalin udah nemuin anomali anaomali kura kura di  area buoyancy lab 
+semenjjak season 8 buoayancy dapet udate jadi ada airnya 
+dan disinilah habitat munculnya anomali ini 
+dan masih banyak
+
+16
 kesel kalah aim mulu kalo pas duel 
 tenang  kalina perlu cobain build akurasi 100 
 
