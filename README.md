@@ -215,13 +215,18 @@ Ini kunci paling mahal, belum tentu balik modal juga kalo kalian buka  .
 tapi  satu-satunya  yanng  bikin kunci  ini bagus cuma kareana,,,,,,, seing muncul hoa  disini  
 
 15
+lanjut brakesh bang 
 5 kunci terbaik yang bisa  kalian bawa kalo pas  main di brakkesh 
-Old Bath VIP
-Hotel Dining Room
-CEO Conference Room 
-New tower of babel power access
-Museum Exhibition Suite 
-
+New tower of babel power supply access ,ini advantagenya paling gede ,bisa bypas waktu masuk di semua pintu tower babel
+,dan  ngasih kesempatan kita  buat setup ngerodok  lawan  yang mau masuk . s tier
+Kunci ke-2, gw bakal masukin CEO Conference Room.
+Lokasinya ada di lantai paling atas Tower of Babel, dan yang bikin kunci ini bagus ,karean dia paling murah dikelas kunci emas  dan  paling jujur juga  sama isinya cuy ....
+lanjut kunci yang ke ada 3 Old Bath VIP  lokasinya di lantai 2 gran hamamm ,isinya wangi dan jadi satu satunya ruangan yang punya fitur tambahan  tempat  ratatui  s tier
+Yang ke-4, Hotel Dining Room.
+Lokasinya di Blue River, isinya ada 2 safebox. Tapi yang bikin kunci ini bagus justru dari  drop rate keycard-nya yang tinggi .
+dan kunci yang terahir  Museum Exhibition Suite di lantai 2 royal  museum 
+,Menurut gw ini kunci dengan lootan yang  paling konsisten,
+dari 10 kali buka hampir pasti ada 1 item merah di dalemnya.
 
 15 
 meta penyu di delta force 
