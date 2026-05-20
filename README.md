@@ -214,6 +214,13 @@ Dan kunci terakhir adalah East Wing Managers Office.
 Ini kunci paling mahal, belum tentu balik modal juga kalo kalian buka  .
 tapi  satu-satunya  yanng  bikin kunci  ini bagus cuma kareana,,,,,,, seing muncul hoa  disini  
 
+15
+5 kunci terbaik yang bisa  kalian bawa kalo pas  main di brakkesh 
+Old Bath VIP
+Hotel Dining Room
+CEO Conference Room 
+New tower of babel power access
+Museum Exhibition Suite 
 
 
 15 
