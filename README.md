@@ -227,9 +227,22 @@ Lokasinya di Blue River, isinya ada 2 safebox. Tapi yang bikin kunci ini bagus j
 dan kunci yang terahir  Museum Exhibition Suite di lantai 2 royal  museum 
 ,Menurut gw ini kunci dengan lootan yang  paling konsisten gitu ,
 kek dari 10 kali buka         hampir pasti muncul  1 item merahnya  .
- 
+
+
+
+ 16
+buang jauh jauh flinder kalian karean updath  patch kali ini bener bener ampas 
+kita milai bahasa dari luna dulu 
+fragment granad nya kena nerf 
+efek penetrasi armor yang awalnya 110 diturunin ke 100
+
+mas mas uluru sekarang kena buff  
+
+
+
 
 15 
+ini kura kura makin lama makin perkasa keknya seriusan 
 meta penyu di delta force 
 keanapa baru baru ini mulai muncul meta sineva kura kura 
 gw bakial bahas dulu mulai meta  sineva pemancing di space cituy  
