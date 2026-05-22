@@ -233,10 +233,11 @@ kek dari 10 kali buka         hampir pasti muncul  1 item merahnya  .
 gimana cara dapetin item kambing ini?
 pertama kalian cumak perlu cari tokrn rice dumpling yang bisa kalian dapetin dari npc special guard ataupunn dari courir carton  tagetnya nya  40 token disini yak   
 saran gw kalo mau lebih gampang main di zero dam aja soalnya banyak npc special guard yang spawnya deketan 
-dan setelah kumpulin itemnya  ,kalian tinggal cus ke event page ,terus tukerin jadi goat saply  pack
-misa ngga  dapet dari sini ya  tenang aja gtu 
+dan setelah kumpulin itemnya  ,kalian tinggal cus ke event page ,terus tukerin jadi goat supply  pack
+misal ngga  dapet  kambinya dari sini       
+ya  tenang aja gtu 
 soalnya red item ini kadang masih muncul di savebox juga
-tapi inget, itemnya ini limited dan cuma available 2 minggu aja
+tapi inget, kambingnya  cuma available selam 2 minggu aja
 
  17
 buang jauh jauh flinder kalian karean updath  patch kali ini bener bener ampas 
