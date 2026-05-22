@@ -242,8 +242,8 @@ mas mas uluru sekarang kena buff
 
 
 15 
-ini kura kura makin lama makin perkasa keknya seriusan 
-meta penyu di delta force 
+ini kura kura makin lama makin perkasa aja  keknya seriusan 
+jadi baru tanggal 22 kemaren sineva di buff brutal 
 keanapa baru baru ini mulai muncul meta sineva kura kura 
 gw bakial bahas dulu mulai meta  sineva pemancing di space cituy  
 mungkin sebagian kalin udah nemuin anomali anaomali kura kura di  area buoyancy lab 
