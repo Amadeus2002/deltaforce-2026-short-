@@ -241,7 +241,7 @@ tapi inget, kambingnya  cuma available selam 2 minggu aja
 
 
 17  
-ini kura kura makin lama makin berotot dan makin  ngeselin.... seriusan 
+kura kura ini makin lama makin berotot dan makin  ngeselin.... seriusan 
 jadi klo lu jarang main space city,,  mungkin  lu belum tau kalo  belakangan ini mulai banyak playstyle sineva ratatui 
 yang kalo kebanyakan tikus tu pake g18 c,  bro sigma satu ini lebih  memilih mancing daari dalam  air,
 dan sekalinya kalian kena tarikanya ,hampir 90%  pasti ngga bakalan selmet ,
