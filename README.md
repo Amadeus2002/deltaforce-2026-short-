@@ -244,23 +244,16 @@ tapi inget, kambingnya  cuma available selam 2 minggu aja
 ini kura kura makin lama makin berotot dan makin  ngeselin.... seriusan 
 jadi klo lu jarang main space city,,  mungkin  lu belum tau kalo  belakangan ini mulai banyak playstyle sineva ratatui 
 yang kalo kebanyakan tikus tu pake g18 c,  bro sigma satu ini lebih  memilih mancing daari dalam  air,
-dan sekalinya kalian kena tarikanya ,hampir 90% bisa  di pasti ngga bakal selmet ,
-ngga cuma itu aja  playstyle sineva sekarang .... juga makin  berkembang pesat semenjak kena rework di season 8 n  
-kek misalnya ada yang nyoba  nempelin crawl nest nya gizmo   ke shield nya sineve 
-yang bikin  rodokan dia jadi lebih berdamage  , 
-dan di update mid season kali ini di ajuga dapet buff 
+dan sekalinya kalian kena tarikanya ,hampir 90%  pasti ngga bakalan selmet ,
 
-kubangan di buoayancy  lab 
+ngga cuma itu aja  playstyle Sineva sekarang juga makin aneh-aneh gitu .
+ada yang  nyoba  nempelin crawl nest Gizmo      ke shield sineva       yang  otomatis ngebikin  rodokannya jadi lebih  memtikan.
+atau digabungin sama  ulti Morse… yang bikin dia jadi sonar berjalan.
 
+ditambah lagi  update patch kali ini ngasih tambahan hp dan damage reduction  yang  lumayan gede 
+jadi dia bakaln lebih perkasa kalo dimode warfere  
+dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal potensinya lumayan gede lo 
 
-
-jadi baru tanggal 22 kemaren sineva di buff brutal 
-keanapa baru baru ini mulai muncul meta sineva kura kura 
-gw bakial bahas dulu mulai meta  sineva pemancing di space cituy  
-mungkin sebagian kalin udah nemuin anomali anaomali kura kura di  area buoyancy lab 
-semenjjak season 8 buoayancy dapet udate jadi ada airnya 
-dan disinilah habitat munculnya anomali ini 
-dan masih banyak
 
  17
 buang jauh jauh flinder kalian karean updath  patch kali ini bener bener ampas 
