@@ -242,10 +242,13 @@ tapi inget, kambingnya  cuma available selam 2 minggu aja
 
 17  
 ini kura kura makin lama makin berotot dan makin  ngeselin.... seriusan 
-jadi klo lu jarang main space city,,  mungkin  lu belum tau kalo  belakangan ini mulai banyak muncul anomali pemancing handal 
-dan ya mereaka pake sineva buat narikin orang orang dari dalem aer, dan 
-
-
+jadi klo lu jarang main space city,,  mungkin  lu belum tau kalo  belakangan ini mulai banyak playstyle sineva ratatui 
+yang kalo kebanyakan tikus tu pake g18 c,  bro sigma satu ini lebih  memilih mancing daari dalam  air,
+dan sekalinya kalian kena tarikanya ,hampir 90% bisa  di pasti ngga bakal selmet ,
+ngga cuma itu aja  playstyle sineva sekarang .... juga makin  berkembang pesat semenjak kena rework di season 8 n  
+kek misalnya ada yang nyoba  nempelin crawl nest nya gizmo   ke shield nya sineve 
+yang bikin  rodokan dia jadi lebih berdamage  , 
+dan di update mid season kali ini di ajuga dapet buff 
 
 kubangan di buoayancy  lab 
 
