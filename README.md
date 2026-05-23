@@ -239,6 +239,23 @@ ya  tenang aja gtu
 soalnya red item ini kadang masih muncul di savebox juga
 tapi inget, kambingnya  cuma available selam 2 minggu aja
 
+
+17  
+ini kura kura makin lama makin ngeselin.... seriusan 
+jadi klo lu ga tau belakangan ini tu muncul banyak orang  orang pake sineva yang gamepalay nya aneh aneh 
+ada orang paek sineva  
+
+
+
+
+jadi baru tanggal 22 kemaren sineva di buff brutal 
+keanapa baru baru ini mulai muncul meta sineva kura kura 
+gw bakial bahas dulu mulai meta  sineva pemancing di space cituy  
+mungkin sebagian kalin udah nemuin anomali anaomali kura kura di  area buoyancy lab 
+semenjjak season 8 buoayancy dapet udate jadi ada airnya 
+dan disinilah habitat munculnya anomali ini 
+dan masih banyak
+
  17
 buang jauh jauh flinder kalian karean updath  patch kali ini bener bener ampas 
 kita milai bahasa dari luna dulu 
@@ -248,17 +265,6 @@ efek penetrasi armor yang awalnya 110 diturunin ke 100
 mas mas uluru sekarang kena buff  
 
 
-
-
-15 
-ini kura kura makin lama makin perkasa aja  keknya seriusan 
-jadi baru tanggal 22 kemaren sineva di buff brutal 
-keanapa baru baru ini mulai muncul meta sineva kura kura 
-gw bakial bahas dulu mulai meta  sineva pemancing di space cituy  
-mungkin sebagian kalin udah nemuin anomali anaomali kura kura di  area buoyancy lab 
-semenjjak season 8 buoayancy dapet udate jadi ada airnya 
-dan disinilah habitat munculnya anomali ini 
-dan masih banyak
 
 16
 kesel kalah aim mulu kalo pas duel 
