@@ -241,10 +241,13 @@ tapi inget, kambingnya  cuma available selam 2 minggu aja
 
 
 17  
-ini kura kura makin lama makin ngeselin.... seriusan 
-jadi klo lu ga tau belakangan ini tu muncul banyak orang  orang pake sineva yang gamepalay nya aneh aneh 
-ada orang paek sineva  
+ini kura kura makin lama makin berotot dan makin  ngeselin.... seriusan 
+jadi klo lu jarang main space city,,  mungkin  lu belum tau kalo  belakangan ini mulai banyak muncul anomali pemancing handal 
+dan ya mereaka pake sineva buat narikin orang orang dari dalem aer, dan 
 
+
+
+kubangan di buoayancy  lab 
 
 
 
