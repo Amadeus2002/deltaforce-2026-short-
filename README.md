@@ -255,13 +255,23 @@ jadi dia bakaln lebih perkasa kalo dimode warfere
 dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal potensinya lumayan gede lo 
 
 
- 17
-buang jauh jauh flinder kalian karean updath  patch kali ini bener bener ampas 
-kita milai bahasa dari luna dulu 
-fragment granad nya kena nerf 
-efek penetrasi armor yang awalnya 110 diturunin ke 100
 
-mas mas uluru sekarang kena buff  
+
+18 
+komposisisi item medic terbaik,   yang bisa kalian bawa kalo main di operations
+pertama buat setup kere hore nya  gw bakal saranin 
+bawa enchane injector  
+
+
+
+
+item heal  utama nya    
+mu
+
+
+17
+apa oprator suport terbaik di delta force 
+ kalo lu mikir vlinder keknya gw ga bakal 
 
 
 
