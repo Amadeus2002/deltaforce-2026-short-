@@ -271,13 +271,8 @@ jadi gini  enchane injector tu iteme heal yang konsumsinya paling cepet.... 3 de
 sedangkan fris aid  kitt durability nya  banyak tapi  waktunya aktifasinya  paling  lama,  
 
 
-bawa enchane injector  
+dan kategori terahir 
 
-
-
-
-item heal  utama nya    
-mu
 
 
 17
