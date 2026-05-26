@@ -258,8 +258,19 @@ dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal 
 
 
 18 
-komposisisi item medic terbaik,   yang bisa kalian bawa kalo main di operations
-pertama buat setup kere hore nya  gw bakal saranin 
+komposisisi item medic terbaik, yang bisa kalian bawa kalo main di operations
+dan biar lebih gampang ngingetnya gw  bakal bagi  ke 3 kategori  
+pertama buat loot runeer , dimana kalian bisa buang jauh jauh item healling utama  karean kita bakal gantiin  pake operator stringer  dan sisanya bawa  surgigal samaa cat aja 
+ini  seriusan , hive teceh pistol nya  stringer adalah   item heal paing bagus di game ini
+,dia  instan heal,punya efek pain killer 20 detik,   bisa ngilangin debuff sama  ngebuff pendengaran skelaigus   , pokoknya paket komplit 
+
+dan buat kategori yang kedua setup kere hore 
+dimana kita bakal bawa 2 enchene injektor , 2 frist aid kitt  , 2 anti biotik , surgigal ,sama  cat 
+lah keanapa dibedain bang,
+jadi gini  enchane injector tu iteme heal yang konsumsinya paling cepet.... 3 detik doang dan bakaln penting  kalo kondisi lagi war 
+sedangkan fris aid  kitt durability nya  banyak tapi  waktunya aktifasinya  paling  lama,  
+
+
 bawa enchane injector  
 
 
