@@ -256,6 +256,16 @@ dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal 
 
 
 
+18 
+apa item healing terbaik di delta force 
+di kelas hevy weigth  tph atau sch , field med create mungkin jadi pilihan terbaik , 
+punya durability gede , efek pain killer sampe 1 menit , bisa ngilangin bleading dan aktifasinya tercepat nomer 2 ,minusnya  tidak cocok untuk  yang miskin 
+dan dikategori kere hore 
+
+
+
+
+
 
 18 
 komposisisi item medic budget   yang bisa kalian bawa kalo pas main di operations
@@ -271,11 +281,9 @@ jadi gini  enchane injector tu iteme heal yang konsumsinya paling cepet.... 3 de
 sedangkan fris aid  kitt durability nya  banyak tapi  waktunya aktifasinya  paling  lama,  
 
 
-dan kategori terahir 
 
 
-
-17
+17 
 apa oprator suport terbaik di delta force 
  kalo lu mikir vlinder keknya gw ga bakal 
 
