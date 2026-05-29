@@ -257,10 +257,10 @@ dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal 
 
 
 18 
-apa item healing terbaik di delta force 
-di kelas hevy weigth  tph atau sch , field med create mungkin jadi pilihan terbaik , 
-durability gede , efek tambahan pain killer 1 menit , bisa ngilangin bleading , dan cuma butuh  maksial 6,5  detik aja  buat penuhin hp kalian 
-,minusnya  mahal si 
+kira kira apa item healing terbaik yang ada di df
+Buat  yang suka  main di mode hard  mungkin  field med create masih jadi item healing   terbaik , 
+Selain durabilitynya yang  gede , item ini juga kasih efek painkiller selama  1 menit,
+bisa ngatasin bleeding, dan waktu heal maskimalnya cuma sekitar 6,5 detik ,     ,minusnya mahal  
 
 kalo buat kelas budget  enhanced injektor biasnaya dibilang  konsumabel healing terbaik 
 harganya murah, aktifasi 3 detik dan bakalan balikin  12 HP per detik .
