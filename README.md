@@ -259,21 +259,26 @@ dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal 
 18 
 apa item healing terbaik di delta force 
 di kelas hevy weigth  tph atau sch , field med create mungkin jadi pilihan terbaik , 
-punya durability gede , efek pain killer sampe 1 menit , bisa ngilangin bleading, dan cuma butuh  maksial 6,5  detik aja  buat penuhin hp kalian 
+punya durability gede , efek pain killer sampe 1 menit , bisa ngilangin bleading juga , dan cuma butuh  maksial 6,5  detik aja  buat penuhin hp kalian 
 ,minusnya  mahal 
 
-kalo buat kelas budget  enhanced injektor  bakaln jadi  konsumabel healing terbaik 
-harganya murah, aktifasi cuma 3 detik, terus healnya 12 HP per detik.
-yang artinya kalian butuh total 8 detik buat balikkin 60 HP doang 
-dan  kalau ngoomongin  efisiensi  keknya masih bagusan frist aid kit dibanding enchange injectir 
-selisih waktu healingnya beda 1 detik doang , tapi durabilitasnya jauh lebih gede.
+kalo buat kelas budget  enhanced injektor biasnaya dibilang  konsumabel healing terbaik 
+harganya murah, aktifasi 3 detik dan bakalan balikin  12 HP per detik .
+yang artinya kalian butuh waktu  8 detik  buat balikkin 60 HP doang  
+
+dan  kalo  kalau ngoomongin  efisiensinya  keknya masih mendingang  frist aid kit deh 
+selisih waktu healingnya cuma beda 1 detik doang , dan durabilitasnya jauh lebih gede.
+tapi giman amenurut kalian ?
+
+19 
+siapain delta tiket sekarang  , karean asalah satu  mellee legend  di df bakalan balik lagi 
+kalao lu belum tau  biasanay dalam satu season di deltaforce  bakalan muncul 2 melee sekaligus , 
+kek season 7 kemarin  ada fiery owl sama dage , season 8 ada darkstar sama mercy 
+dan di season 9 ini bakalan  ada faling star sama cobra vanguard
+ini masih rumornya tapi kemungkinan besar melee ini   bakal hadir di bulan juni nanti ,jadi siapin aja 5220 delta tiket buat bawa pulang mele ini 
 
 
-dan dikelas operator,  hive teceh pistol nya stringer  adalah   item heal paing bagus di game ini
-instan heal,punya efek pain killer 20 detik,   bisa ngilangin debuff type supress  ditambah   ngebuff pendengaran skelaigus   , pokoknya paket komplitl
 
-
-tapi12
 
 
 
