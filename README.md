@@ -259,9 +259,21 @@ dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal 
 18 
 apa item healing terbaik di delta force 
 di kelas hevy weigth  tph atau sch , field med create mungkin jadi pilihan terbaik , 
-punya durability gede , efek pain killer sampe 1 menit , bisa ngilangin bleading dan aktifasinya tercepat nomer 2 ,minusnya  tidak cocok untuk  yang miskin 
-dan dikategori kere hore 
+punya durability gede , efek pain killer sampe 1 menit , bisa ngilangin bleading, dan cuma butuh  maksial 6,5  detik aja  buat penuhin hp kalian 
+,minusnya  mahal 
 
+kalo buat kelas budget  enhanced injektor  bakaln jadi  konsumabel healing terbaik 
+harganya murah, aktifasi cuma 3 detik, terus healnya 12 HP per detik.
+yang artinya kalian butuh total 8 detik buat balikkin 60 HP doang 
+dan  kalau ngoomongin  efisiensi  keknya masih bagusan frist aid kit dibanding enchange injectir 
+selisih waktu healingnya beda 1 detik doang , tapi durabilitasnya jauh lebih gede.
+
+
+dan dikelas operator,  hive teceh pistol nya stringer  adalah   item heal paing bagus di game ini
+instan heal,punya efek pain killer 20 detik,   bisa ngilangin debuff type supress  ditambah   ngebuff pendengaran skelaigus   , pokoknya paket komplitl
+
+
+tapi12
 
 
 
