@@ -283,10 +283,15 @@ jadi semoga berustung
 
 
 20
-6 kunci terbaik yang bisa  kalian bawa kalo pas  main di space city 
-pertama gw bakal masukin 3 kuncis sekaligus  employ pasage , west gate dan eastern supresion bridge 
-semua kunci ini  punya advantage yang sama  ,dimana kalian bisa langsung masuk  ke core area space city  s tier 
-kunci yang ke 4 gw bakal masukin ceo  
+5  kunci terbaik yang bisa  kalian bawa kalo pas  main di space city 
+pertama gw bakal masukin 3 kuncis sekaligus  west gate employ pasage ,  sama eastern supresion bridge 
+semua kunci ini  punya advantage yang sama  ,dimana kalian bisa langsung masuk  ke core area space city s tier 
+buat kunci yang ke 4  gw bakal masukin  ceo office reception, lokasinya di lantai paling atas core area 
+dan  yang buat kunci ini bagus kareaa drop ate item merahnya paling gede di antara semua kunci yang ada di space city 
+lanjut  kunci yang terahir ada test range core ,lokasinya di lantai 2 test range , dan kelebihan dari kunci ini kareana kategori nya murah 
+
+
+
 
 
 
