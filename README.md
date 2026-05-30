@@ -282,6 +282,11 @@ jadi semoga berustung
 
 
 
+20
+6 kunci terbaik yang bisa  kalian bawa kalo pas  main di space city 
+pertama gw bakal masukin 3 kuncis sekaligus  employ pasage , west gate dan 
+semua kunci ini  punya advantage yang sama  ,dimana kalian bisa langsung masuk  ke core area space city  s tier 
+kunci yang ke 4 gw bakal masukin 
 
 
 
