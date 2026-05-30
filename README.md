@@ -285,12 +285,12 @@ jadi semoga berustung
 20
 5  kunci terbaik yang bisa  kalian bawa kalo pas  main di space city 
 pertama gw bakal masukin 3 kuncis sekaligus  western  gate, employ pasage ,  sama  eastern bridge 
-tiga  kunci ini  punya advantage yang sama  ,dimana kalian bisa masuk langsung ke core area                  s tier 
+tiga  kunci ini  punya advantage yang sama  ,dimana kalian bisa masuk langsung ke core area  space citu                s tier 
 
 kunci ke 4 ada test range core harganya ngga terterlalu overprice  
 dan Yang bikin kunci ini menarik, kadang ada item merah spawn di atas meja, jadi kalo pas bawa  raptor bisa diintip  isinya 
 
-dan  kunci  yang terahir ada ceo office reception,
+dan  kunci  yang terahir ada ceo office reception room,
 didalemnya ada 2 savebok dan bakalan ada tambahan satu smal save lagi 
 klo main di mode hard  , drop rate item merahnnya juga  lumyan tinggi , jadi sepadan  sama harganya   
 
