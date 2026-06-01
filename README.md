@@ -255,7 +255,6 @@ jadi dia bakaln lebih perkasa kalo dimode warfere
 dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal potensinya lumayan gede lo 
 
 
-
 18 
 kira kira apa item healing terbaik yang ada di df
 Buat  yang suka  main di mode hard  mungkin  field med create masih jadi item healing   terbaik , 
@@ -279,13 +278,10 @@ ini masih rumornya tapi kemungkinan besar meleenya  bakal hadir di  awal  juni i
 dan kareana metodenya gacha  jdi seenganya kalian harus kumpulin 5220 delta tiket 
 jadi semoga berustung 
 
-
-
-
 20
-5  kunci terbaik yang bisa  kalian bawa kalo pas  main di space city 
+5 kunci terbaik yang bisa  kalian bawa kalo pas  main di space city 
 pertama gw bakal masukin 3 kuncis sekaligus  western  gate, employ pasage ,  sama  eastern bridge 
-tiga  kunci ini  punya advantage yang sama  ,dimana kalian bisa masuk langsung ke core area  space citu                s tier 
+tiga  kunci ini  punya advantage yang sama  ,dimana kalian bisa masuk langsung ke core area  space citu s tier 
 
 kunci ke 4 ada test range core harganya ngga terterlalu overprice  
 dan Yang bikin kunci ini menarik, kadang ada item merah spawn di atas meja, jadi kalo pas bawa  raptor bisa diintip  isinya 
@@ -296,26 +292,52 @@ klo main di mode hard  , drop rate item merahnnya juga  lumyan tinggi , jadi sep
 
 
 
-
-
-
-18 
-komposisisi item medic budget   yang bisa kalian bawa kalo pas main di operations
-pertama setup buat loot runeer , dimana kita bakal buang jauh jauh item healling utamanya....  karean kita bakal gantiin  pake operator stringer  
-dan kalo belum tau hive teceh pistol nya stringer  adalah   item heal paing bagus di game ini
-,udah  instan heal,punya efek pain killer 20 detik,   bisa ngilangin debuff type supress  sama  ngebuff pendengaran skelaigus   , pokoknya paket komplitl
-dan sisanya kalian perlu  bawa  surgigal  buat buat operasi  samaa cat buat 
-
-dan buat kategori yang kedua setup kere hore 
-dimana kita bakal bawa 2 enchene injektor , 2 frist aid kitt  , 2 anti biotik , surgigal ,sama  cat 
-lah keanapa dibedain bang,
-jadi gini  enchane injector tu iteme heal yang konsumsinya paling cepet.... 3 detik doang dan bakaln penting  kalo kondisi lagi war 
-sedangkan fris aid  kitt durability nya  banyak tapi  waktunya aktifasinya  paling  lama,  
+juni 2026
+21 raptor 
 
 
 
 
-17 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 apa oprator suport terbaik di delta force 
  kalo lu mikir vlinder keknya gw ga bakal 
 
