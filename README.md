@@ -293,7 +293,23 @@ klo main di mode hard  , drop rate item merahnnya juga  lumyan tinggi , jadi sep
 
 
 juni 2026
-21 raptor 
+
+21 
+ahirnya gw tau caranya  lepas dari gear fear 
+jadi gear fear ini adalah sebuah kondisi dimana orang  takut pake perlengkapan mahal ,atau gampang nya lu sebuat ae penyakit  kikiir dah 
+dan  buat lepas dari kkondisi ini ada 3 metode 
+yang pertama lu haru  jadi kaya dulu ,
+tapi jangan lupa  buat nentuin batesan nya ,banyak orang yang gua liat  punya banyak value tapi tetep  ngga sembuh dari gear fear, ya karean lua bates 
+buat gw sendiri gw batesin diangka 20, jt allooy , ini udah aman banget kalo mau buat main  10x
+
+dan metode ke ,gw bakal saranin  cari partian yang suka gear up ,
+
+
+
+gw bakal bilang 20.000 teknik alloy tu udaah cukup banget buat lepas 
+
+
+22 raptor 
 
 
 
