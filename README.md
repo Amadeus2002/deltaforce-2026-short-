@@ -312,10 +312,8 @@ gw bakal bilang 20.000 teknik alloy tu udaah cukup banget buat lepas
 
 
 22 
-cari bola hitam sekarang dan 
-
-di evemgt ini kalian 
-soccer frenzy 
+bola item ini bisa bikin u
+jadi 
 
 
 
