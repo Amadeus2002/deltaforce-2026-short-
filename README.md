@@ -299,21 +299,18 @@ ahirnya..... ahirnya  gw  lepas dari gear fear  hehehe
 hek kem  ok jadi apa itu  gear fear , singkatya ini adalah sebuah kondisi dimana  orang  tu jadi takut pake perlengkapan mahal ,atau gampang nya lu sebuat ae penyakit  kikiir  
 dan buat   lepas dari kkondisi ini  ,ada 3 metode  terbaik yang  bisa lu coba 
 
-pertamaa..... coba kumpulin  value yang banyak 
+pertama cobain  cari partian yang suka pake gear tinggi
+bangun mental pd tu butuh circel yang mendukung cuy 
+coba bayangin  lu udah  pake t6  ,m250  pluru hybrif   , tapi temen lu  cuma pake g 18 c doang , nice tim bro  , disitu kita butuh komitmen 
 
+yang ke 2 coba kumpulin value yang banyak tapi jangan sampe kelebihan , 
+lu harus nentuin sendiri bates bawahnya.
+kalo gw   pake angka  20jt alloy buat batesan bwahnya , jadi ketika duitnya lebih dari itu , gw bebas pake gear tinggi ,
+. Ini penting, soalnya gw sering lihat orang value-nya udah gede banget tapi gear fear-nya nggak hilang-hilang ,Ternyata masalahnya bukan kurang duit tapi kurang bersyukur 
 
-dan metode ken2 ,gw bakal saranin  cari partian yang suka pake gear up
-karean menurut  teori social contagion ,orang tu bakal selalu ngkiutinn kebiasaan disekitarnya 
-gw bakal bilang 20.000 teknik alloy tu udaah cukup banget buat lepas 
-
-
-
-
-
-
-
-
-
+dan yang  terahir , coba ambil quest yang ngeharusin  pake gear tinggi 
+Contohnya quest Save Box Season. Cara ini lumayan ampuh karena lu dipaksa keluar dari zona nyaman.dan pertaruhin gear mahal dengan reward yang sebnading 
+Intinya, semakin sering pakai gear mahal, semakin terbiasa, dan lama-lama gear fear itu bakal hilang sendiri
 
 
 
@@ -351,15 +348,18 @@ gw bakal bilang 20.000 teknik alloy tu udaah cukup banget buat lepas
 
 
 
-apa oprator suport terbaik di delta force 
- kalo lu mikir vlinder keknya gw ga bakal 
+
+
+
+
+
+
 
 
 
 16
 kesel kalah aim mulu kalo pas duel 
 tenang  kalina perlu cobain build akurasi 100 
-
 
 d dam bagian cment plant ama di sebelah kanan makor subtation 
 di brakes juag ada 2 titik 
