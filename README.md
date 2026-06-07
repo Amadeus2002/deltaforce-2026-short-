@@ -296,21 +296,21 @@ juni 2026
 
 21 
 ahirnya..... ahirnya  gw  lepas dari gear fear  hehehe 
-hek kem  ok jadi apa itu  gear fear , singkatya ini adalah sebuah kondisi dimana  orang  tu jadi takut pake perlengkapan mahal ,atau gampang nya lu sebuat ae penyakit  kikiir  
+hek kem  ok jadi apa itu  gear fear , singkatya ini adalah sebuah kondisi dimana  orang jadi takut pake perlengkapan mahal ,atau gampang nya lu sebuat ae penyakit  kikiir  
 dan buat   lepas dari kkondisi ini  ,ada 3 metode  terbaik yang  bisa lu coba 
 
-pertama cobain  cari partian yang suka pake gear tinggi
-bangun mental pd tu butuh circel yang mendukung cuy 
-coba bayangin  lu udah  pake t6  ,m250  pluru hybrif   , tapi temen lu  cuma pake g 18 c doang , nice tim bro  , disitu kita butuh komitmen 
+pertama cobain  cari partian yang suka pake gear tinggi cuy 
+bangun mental pd tu butuh circel yang mendukung  
+ketika partian lu isinya sering pake gear seadanya 
 
 yang ke 2 coba kumpulin value yang banyak tapi jangan sampe kelebihan , 
-lu harus nentuin sendiri bates bawahnya.
-kalo gw   pake angka  20jt alloy buat batesan bwahnya , jadi ketika duitnya lebih dari itu , gw bebas pake gear tinggi ,
-. Ini penting, soalnya gw sering lihat orang value-nya udah gede banget tapi gear fear-nya nggak hilang-hilang ,Ternyata masalahnya bukan kurang duit tapi kurang bersyukur 
+Ini penting banget , karena gw sering lihat orang yang  value-nya udah  banyak   tapi gear fear-nya kagak hilang-hilang ,kikir ni orang 
+jadi  lu harus nentuin sendiri bates bawahnya cuy .
+dan sebagai contohnya  gw pake  angka  20jt alloy buat jadi  batesan bwahnya ,ketika duitnya lebih dari itu ,ya gw bebas pake gear mahal , intinay bersyukur cuy    
 
 dan yang  terahir , coba ambil quest yang ngeharusin  pake gear tinggi 
-Contohnya quest Save Box Season. Cara ini lumayan ampuh karena lu dipaksa keluar dari zona nyaman.dan pertaruhin gear mahal dengan reward yang sebnading 
-Intinya, semakin sering pakai gear mahal, semakin terbiasa, dan lama-lama gear fear itu bakal hilang sendiri
+Contohnya quest Save Box Season yang  maksa kita gambling  gear mahal buat  reward  yang lebih gede  
+dan semakin kita sering  pake gear mahal  lama-lama gear fear itu bakal ngilang  sendiri
 
 
 
