@@ -295,25 +295,17 @@ klo main di mode hard  , drop rate item merahnnya juga  lumyan tinggi , jadi sep
 juni 2026
 
 21 
-ahirnya..... ahirnya  gw  lepas dari gear fear
-hek kem  ok jadi apa itu  gear fear , singkatya ini adalah sebuah kondisi dimana orang tu   takut pake perlengkapan mahal ,atau gampang nya lu sebuat ae penyakit  kikiir  
-dan buat   lepas dari kkondisi ini  ada 3 metode  terbaik yang  bisa alu coba 
-pertamaa.....  jadi kaya ,
+ahirnya..... ahirnya  gw  lepas dari gear fear  hehehe 
+hek kem  ok jadi apa itu  gear fear , singkatya ini adalah sebuah kondisi dimana  orang  tu jadi takut pake perlengkapan mahal ,atau gampang nya lu sebuat ae penyakit  kikiir  
+dan buat   lepas dari kkondisi ini  ,ada 3 metode  terbaik yang  bisa lu coba 
 
-tapi jangan lupa  buat nentuin batesan nya ,banyak orang yang gua liat  punya banyak value tapi tetep  ngga sembuh dari gear fear, ya karean lupa bates ini 
-buat gw sendiri gw batesin diangka 20, jt allooy , ini udah aman banget kalo mau buat main  10x
+pertamaa..... coba kumpulin  value yang banyak 
+
 
 dan metode ken2 ,gw bakal saranin  cari partian yang suka pake gear up
-karean menurut  teori social contagion ,orang tu bakal selalu ngkiutin kebiasaan disekitarnya 
-
-
-
+karean menurut  teori social contagion ,orang tu bakal selalu ngkiutinn kebiasaan disekitarnya 
 gw bakal bilang 20.000 teknik alloy tu udaah cukup banget buat lepas 
 
-
-22 
-bola item ini bisa bikin u
-jadi 
 
 
 
