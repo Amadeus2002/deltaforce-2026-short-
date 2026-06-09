@@ -313,11 +313,12 @@ Contohnya quest Save Box Season yang  maksa kita gambling  gear mahal buat  rewa
 dan semakin kita sering  pake gear mahal  lama-lama gear fear itu bakal ngilang  sendiri
 
 
+22
+bapak abapak botak 1 ini memepertahankan wilayahnya dengan cara nge jap operator serisusan 
+jadi belakangan ini mulai banyak leakk soal update season 10 
+mulai dari bos  botak  yang punya kaitan sama nox 
 
-
-
-
-
+3
 
 
 
