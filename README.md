@@ -318,7 +318,17 @@ bapak abapak botak 1 ini memepertahankan wilayahnya dengan cara nge jap operator
 jadi belakangan ini mulai banyak leakk soal update season 10 
 mulai dari bos  botak  yang punya kaitan sama nox 
 
-3
+23
+tikus  di buff lagi ,setelah qcq masuk meta penghancur kaki 
+ahirnya di season  10  kita bakalan  dapet  2  ammo ,yang  base damagenya jauh lebih gede  ,dari varian rip
+di kaliber 9,9mm  kaya  g18c sama qcq, bakalan dapet pluru unngu  varian ct ,dengan base damagenya 175%
+kalo pake rip 5 pluru udah bisa kenockin orang mungkin varian ct ini  cuma butuh  3 atau 4 pluru aja ,ini 
+b
+
+
+
+
+
 
 
 
