@@ -320,10 +320,12 @@ mulai dari bos  botak  yang punya kaitan sama nox
 
 23
 tikus  di buff lagi ,setelah qcq masuk meta penghancur kaki 
-ahirnya di season  10  kita bakalan  dapet  2  ammo ,yang  base damagenya jauh lebih gede  ,dari varian rip
-di kaliber 9,9mm  kaya  g18c sama qcq, bakalan dapet pluru unngu  varian ct ,dengan base damagenya 175%
-kalo pake rip 5 pluru udah bisa kenockin orang mungkin varian ct ini  cuma butuh  3 atau 4 pluru aja ,ini 
-b
+ahirnya di season  10  kita bakal dapet tambahan   2  pluru kaki ,yang  damage rationya  jauh lebih gede  dari varian rip
+di kaliber 9,9mm kayak g18c sama qcq, 
+bakalan dikasih  peluru varian ct. yang  damagenya lebih gede sekitar 25% dibanding peluru rip.
+kalo biasanya  5  pluru rip dah bisa kenockin 1 orang mungkin varian ct ini butuh  3 sampe  4 pluru nantinya 
+ditambah lagi  vektor sama smg 45 juga  kebagian varian ct ,jadi  pilihan senjata buat ngetikus   makin banyak nantinya
+ 
 
 
 
