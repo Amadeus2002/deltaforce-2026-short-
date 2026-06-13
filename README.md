@@ -314,12 +314,10 @@ dan semakin kita sering  pake gear mahal  lama-lama gear fear itu bakal ngilang 
 
 
 22
-bapak bapak  botak satu  ini memepertahankan wilayahnya dengan cara nge jap operator serisusan 
+bapak bapak  botak  ini memepertahankan wilayahnya dengan cara nge jap operator serisusan 
 jadi di season 10 besok  kita bakal kedatangan boss baru yang namanya  brain computer agent 
-nmgga cuman 1 tapi bisa 5 seklaigu sdalam 1 match 
-mereka punya codename yang mirp tapi dalam 1 match katanaya maksimal bisa muncul 5 bos sekaligus 
+ngga  cuman 1 ....tapi  ada 3 boss sekaligus dalam 1 match ,codenamenya juga beda beda ada h800 ada h1000 ada juaha h47 
 
-kaya h1000 , h800 sama h47 
 
 tapi klo katanya creator china maksimal kita bisa nemuin 5 bos dalam 1 match 
 
