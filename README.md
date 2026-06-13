@@ -314,8 +314,11 @@ dan semakin kita sering  pake gear mahal  lama-lama gear fear itu bakal ngilang 
 
 
 22
-bapak abapak botak 1 ini memepertahankan wilayahnya dengan cara nge jap operator serisusan 
-jadi belakangan ini mulai banyak leakk soal update season 10 
+bapak bapak  botak satu  ini memepertahankan wilayahnya dengan cara nge jap operator serisusan 
+jadi di season 10 nanti  kalian bisa nemuin boss baru yang namanya  brain computer agent 
+mereka ngga cuman satu aja tapi mereka bisa ber 5
+
+ngga cuy 
 mulai dari bos  botak  yang punya kaitan sama nox 
 
 23
@@ -328,6 +331,7 @@ ditambah lagi  vektor sama smg 45 juga  kebagian varian ct   /vc,jadi  pilihan s
  
 
 
+ledakin reaktor nuklir  , lewat quest flashgip di seson 10 nanti 
 
 
 
@@ -336,9 +340,14 @@ ditambah lagi  vektor sama smg 45 juga  kebagian varian ct   /vc,jadi  pilihan s
 
 
 
+paling banyak 5 buak 
 
+brain machine agent h800 muncul di tengah area reaktor nuklir di tengah map
 
-
+tas h 1000 t5 deagel
+kadng dia jug abawa tas
+bisa lempar jarum beracun yang namanya black mamba  yang harus kalian copot 
+ngasih effeck paralyze 
 
 
 
