@@ -316,9 +316,8 @@ bang gimana cara tau kode pintu, yang gannti setiap harinya
 sebenennya  tergantung posisi kalian 
 kalo  sebelum  masuk match ,bisa buka  ke tab event terus pilih menu lainya ,dan disitu ada markas besar delta force 
 kalian bisa cek kode harian  ,provit harian ,loadout  sampe  info update patch dari sini
-dan  kalo posisinya udah di dalem match  etah kenapa kode-kode kek gini tu biasnayalangsung lupa, 
-tapi ya  tenang aja karena  websitenya  masih bisa akses lewat gogle 
-tingga ketik garenadf.com/hq ,dan kalian udah bisa akses semua fitur data centernya operator 
+tapi kalo posisinya udah di dalem match  kaliam juga bisa   akses websitemya  lewat gogle 
+tingga ketik aja garenadf.com/hq ,dan  semua fitur Data Center Operator langsung bisa diakses dari situ.
 
 
 
