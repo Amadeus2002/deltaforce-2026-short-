@@ -317,7 +317,7 @@ sebenennya  tergantung posisi kalian
 kalo  sebelum  masuk match ,bisa buka  ke tab event terus pilih menu lainya ,dan disitu ada markas besar delta force 
 kalian bisa cek kode harian  ,provit harian ,loadout  sampe  info update patch dari sini
 tapi kalo posisinya udah di dalem match .terus kalian lupa kodenya  tenang aja  websitenya tu  masih bisa akses lewat gogle 
-dengan cara  ketik garenadf.com/hq ini adalah data scenter milik sema uoperator 
+tingga ketik garenadf.com/hq ,dan kalian udah bisa akses semua fitur data centernya 
 
 
 
