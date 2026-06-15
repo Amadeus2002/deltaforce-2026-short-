@@ -290,8 +290,6 @@ dan  kunci  yang terahir ada ceo office reception room,
 didalemnya ada 2 savebok dan bakalan ada tambahan satu smal save lagi 
 klo main di mode hard  , drop rate item merahnnya juga  lumyan tinggi , jadi sepadan  sama harganya   
 
-
-
 juni 2026
 
 21 
@@ -314,13 +312,48 @@ dan semakin kita sering  pake gear mahal  lama-lama gear fear itu bakal ngilang 
 
 
 22
+bang gimana cara tau kode pintu, yang gannti setiap harinya
+sebenennya  tergantung posisi kalian 
+kalo  sebelum  masuk match ,bisa buka  ke tab event terus pilih menu lainya ,dan disitu ada markas besar delta force 
+kalian bisa cek kode harian  ,provit harian ,loadout  sampe  info update patch dari sini
+tapi kalo posisinya udah di dalem match .terus kalian lupa kodenya  tenang aja  websitenya tu  masih bisa akses lewat gogle 
+dengan cara  ketik garenadf.com/hq ini adalah data scenter milik sema uoperator 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+22
 bapak bapak  botak  ini memepertahankan wilayahnya dengan cara nge jap operator serisusan 
 jadi di season 10 besok  kita bakal kedatangan boss baru yang namanya  brain computer agent 
 ngga  cuman 1 ....tapi  ada 3 boss sekaligus dalam 1 match ,codenamenya juga beda beda ada h800 ada h1000 ada juaha h47 
 
 
 tapi klo katanya creator china maksimal kita bisa nemuin 5 bos dalam 1 match 
-
 ngga cuy 
 mulai dari bos  botak  yang punya kaitan sama nox 
 
