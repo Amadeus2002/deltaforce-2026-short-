@@ -319,43 +319,33 @@ kalian bisa cek kode harian  ,provit harian ,loadout  sampe  info update patch d
 tapi kalo posisinya udah di dalem match  kaliam juga bisa   akses websitemya  lewat gogle 
 tingga ketik aja garenadf.com/hq ,dan  semua fitur Data Center Operator langsung bisa diakses dari situ.
 
+23
+bapak bapak  botak  ini
+memepertahankan  wilayahnya dengan cara mancal operator………serisusan 
+jadi di map baru az3  besok
+kita bakal kedatangan   boss  brain computer agent dengan codename h series 
+ada h800 ada h1000  ada juga   h47 ,pokonya  makin gede angkanya bearti makin  gede juga   abilitynya 
+dan rumornya bosss ini bisa resapawn ulang cuy 
+gw kamarin sempet  liat ada  player cn yang  nemuin sampe 6 boss sekaligus  di satu map
+dan lebih ngesealinnya lagi mereka bisa ngelamparin   jarum Black Mamba. 
+yang dimana jarum black amba ini ngebuat target nya langung  turu 
+atau kita sebutnya  efect paralyze yang bikin semua saraf lumpuh sementara 
+dan kalo kalian kena jarumnya ….. jangan panik ,
+tinggal cabut aja sebelum efeknya bereaksi 
+
+24
+dapetin 2 dari 3 skin  rainbow 9 gratis di season 10 besok 
+jadi dari live stream devloper privew kemarin kita bakalan 
+kedatengan banyak banget  hal baru 
+mula dari map baru az3 yang diviculti nya easy sama normal 
+battle pass tempest yang temanya koboi
+item colectible drrone yang bisa kalian deploy 
+sampe  2 skin operator r6 dengan tambahan 1 bundle  black ice
+yang bisa di claim  dengan nyelsain quest  in game 
+untuk kolaborasinya sendiri  bakal di mulai tanggal 10 juli besok 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-22
-bapak bapak  botak  ini memepertahankan wilayahnya dengan cara nge jap operator serisusan 
-jadi di season 10 besok  kita bakal kedatangan boss baru yang namanya  brain computer agent 
-ngga  cuman 1 ....tapi  ada 3 boss sekaligus dalam 1 match ,codenamenya juga beda beda ada h800 ada h1000 ada juaha h47 
-
-
-tapi klo katanya creator china maksimal kita bisa nemuin 5 bos dalam 1 match 
-ngga cuy 
-mulai dari bos  botak  yang punya kaitan sama nox 
 
 23
 tikus  di buff lagi ,setelah qcq masuk meta penghancur kaki 
@@ -374,16 +364,6 @@ ledakin reaktor nuklir  , lewat quest flashgip di seson 10 nanti
 
 
 
-
-
-paling banyak 5 buak 
-
-brain machine agent h800 muncul di tengah area reaktor nuklir di tengah map
-
-tas h 1000 t5 deagel
-kadng dia jug abawa tas
-bisa lempar jarum beracun yang namanya black mamba  yang harus kalian copot 
-ngasih effeck paralyze 
 
 
 
