@@ -245,11 +245,9 @@ kura kura ini makin lama makin berotot dan makin  ngeselin.... seriusan
 jadi klo lu jarang main space city,,  mungkin  lu belum tau kalo  belakangan ini mulai banyak playstyle sineva ratatui 
 yang kalo kebanyakan tikus tu pake g18 c,  bro sigma satu ini lebih  memilih mancing daari dalam  air,
 dan sekalinya kalian kena tarikanya ,hampir 90%  pasti ngga bakalan selmet ,
-
 ngga cuma itu aja  playstyle Sineva sekarang juga makin aneh-aneh gitu .
 ada yang  nyoba  nempelin crawl nest Gizmo      ke shield sineva       yang  otomatis ngebikin  rodokannya jadi lebih  memtikan.
 atau digabungin sama  ulti Morse… yang bikin dia jadi sonar berjalan.
-
 ditambah lagi  update patch kali ini ngasih tambahan hp dan damage reduction  yang  lumayan gede 
 jadi dia bakaln lebih perkasa kalo dimode warfere  
 dan entah kenapa operator sebroken ini keknya masih sepi peminat gitu , padahal potensinya lumayan gede lo 
@@ -260,11 +258,9 @@ kira kira apa item healing terbaik yang ada di df
 Buat  yang suka  main di mode hard  mungkin  field med create masih jadi item healing   terbaik , 
 Selain durabilitynya yang  gede , item ini juga kasih efek painkiller selama  1 menit,
 bisa ngatasin bleeding, dan waktu heal maskimalnya cuma sekitar 6,5 detik ,     ,minusnya mahal  
-
 kalo buat kelas budget  enhanced injektor biasnaya dibilang  konsumabel healing terbaik 
 harganya murah, aktifasi 3 detik dan bakalan balikin  12 HP per detik .
 yang artinya kalian butuh waktu  8 detik  buat balikkin 60 HP doang  
-
 dan  kalo  kalau ngoomongin  efisiensinya  keknya masih mendingang  frist aid kit si 
 selisih waktu healingnya cuma beda 1 detik doang , dan durabilitasnya jauh lebih gede.
 tapi giman amenurut kalian ?
@@ -282,10 +278,8 @@ jadi semoga berustung
 5 kunci terbaik yang bisa  kalian bawa kalo pas  main di space city 
 pertama gw bakal masukin 3 kuncis sekaligus  western  gate, employ pasage ,  sama  eastern bridge 
 tiga  kunci ini  punya advantage yang sama  ,dimana kalian bisa masuk langsung ke core area  space citu s tier 
-
 kunci ke 4 ada test range core harganya ngga terterlalu overprice  
 dan Yang bikin kunci ini menarik, kadang ada item merah spawn di atas meja, jadi kalo pas bawa  raptor bisa diintip  isinya 
-
 dan  kunci  yang terahir ada ceo office reception room,
 didalemnya ada 2 savebok dan bakalan ada tambahan satu smal save lagi 
 klo main di mode hard  , drop rate item merahnnya juga  lumyan tinggi , jadi sepadan  sama harganya   
@@ -296,16 +290,13 @@ juni 2026
 ahirnya..... ahirnya  gw  lepas dari gear fear  hehehe 
 hek kem  ok jadi apa itu  gear fear , singkatya ini adalah sebuah kondisi dimana  orang jadi takut pake perlengkapan mahal ,atau gampang nya lu sebuat ae penyakit  kikiir  
 dan buat   lepas dari kkondisi ini  ,ada 3 metode  terbaik yang  bisa lu coba 
-
 pertama cobain  cari partian yang suka pake gear tinggi cuy 
 bangun mental pd tu butuh circel yang mendukung  
 ketika partian lu isinya sering pake gear seadanya 
-
 yang ke 2 coba kumpulin value yang banyak tapi jangan sampe kelebihan , 
 Ini penting banget , karena gw sering lihat orang yang  value-nya udah  banyak   tapi gear fear-nya kagak hilang-hilang ,kikir ni orang 
 jadi  lu harus nentuin sendiri bates bawahnya cuy .
 dan sebagai contohnya  gw pake  angka  20jt alloy buat jadi  batesan bwahnya ,ketika duitnya lebih dari itu ,ya gw bebas pake gear mahal , intinay bersyukur cuy    
-
 dan yang  terahir , coba ambil quest yang ngeharusin  pake gear tinggi 
 Contohnya quest Save Box Season yang  maksa kita gambling  gear mahal buat  reward  yang lebih gede  
 dan semakin kita sering  pake gear mahal  lama-lama gear fear itu bakal ngilang  sendiri
@@ -345,6 +336,116 @@ yang bisa di claim  dengan nyelsain quest  in game
 untuk kolaborasinya sendiri  bakal di mulai tanggal 10 juli besok 
 
 
+25
+kalau lu di suruhp milih  masa depan asarah 
+apakah lu bakal milih reset kehidupan mereka  
+atau malah bikin mereka jadi bahan percobaanya havx 
+weel in adalah pertanyaan yang harus lu jawab di ahir quest season 10 besok 
+dan kalo lu tanya gw  jelas gw  pilih  nomer 1 si 
+yang  dimana buat dapetin ending reset kehidupan ini 
+kalian harus nembak provesor nasir yang ada di  sebelah kiri
+dan nantinya saudara dia bakal ngeldakin semua  vasilitas az3 
+yangdampaknya  ngerusak semua ekosistem skynet 
+lah terus rakyatnya kek mana bang  
+ya yah matang cuy
+cuma kalo lu type orang yang baik hati ramah dan suka traktir orang 
+mungkin pilihan  ke 2  lebih baik 
+tembak bapak bapak di sebelah kanan 
+dan kalian akan membantu king nasir buat dapetin  projek dark meter dari hudson 
+yang pastinya ini punya  konsekuensi besar di masa depan 
+
+
+
+26
+kalo dipikir pikir ,  melle  elgy tu cocok buat mancing, seriusan 
+dia  punya  jarak serangann yang  panjang semua 
+dan kalo di dalem air bakal mempermudah ngehit  target yang gerak gerak 
+apa lagi melee ini  juga punya stat yang lumayan bagus 
+base  damage di angka  30 33 35 pokoknya ada  di atasnya darkstar
+tapi asynagnya dia punya minus di kecepatan  serangnya 
+kek sedang  sedang lambat , ini nge bikin feelnya rada berat 
+tapi overall bagus kok , bisa one hit ke npc dan damage multipelnya juga  gede 
+A tier
+
+27
+kepalanya boos baru   literaly dijadiin  baliho 
+jadi baru kemarin official akun deltaforce upload cinematik trailer season 10 
+dan lu tau apa ,      ternyata mereka masukin  easter egggg didalemnya 
+kalo lu pause  di detik 47
+lu  bisa nemuin scene dimana kepala boss nya  di  tato pake   barcode 
+dan kalo lu scan barcodnya 
+lu bakal nemuisn   sebuah website  promosi relink 
+dan dari sini kita jadi tau nih 
+kalo bro ini  sebenernya adalah bahan propaganda havx
+
+28
+bapak bapak  botak  ini
+memepertahankan  wilayahnya dengan cara mancal operator………serisusan 
+jadi di map baru az3  besok
+kita bakal kedatangan   boss  brain computer agent dengan codename h series 
+ada h800 ada h1000  ada juga   h47 ,pokonya  makin gede angkanya bearti makin  gede juga   abilitynya 
+dan rumornya bosss ini bisa resapawn ulang cuy 
+gw kamarin sempet  liat ada  player cn yang  nemuin sampe 6 boss sekaligus  di satu map
+dan lebih ngesealinnya lagi mereka bisa ngelamparin   jarum Black Mamba. 
+yang dimana jarum black amba ini ngebuat target nya langung  turu 
+atau kita sebutnya  efect paralyze yang bikin semua saraf lumpuh sementara 
+dan kalo kalian kena jarumnya ….. jangan panik ,
+tinggal cabut aja sebelum efeknya bereaksi 
+
+29
+dapetin 2 dari 3 skin  rainbow 9 gratis di season 10 besok 
+jadi dari live stream devloper privew kemarin kita bakalan 
+kedatengan banyak banget  hal baru 
+mula dari map baru az3 yang diviculti nya easy sama normal 
+battle pass tempest yang temanya koboi
+item colectible drrone yang bisa kalian deploy 
+sampe  2 skin operator r6 dengan tambahan 1 bundle  black ice
+yang bisa di claim  dengan nyelsain quest  in game 
+untuk kolaborasinya sendiri  bakal di mulai tanggal 10 juli besok 
+
+
+30
+MAKRO MAP CYCLONE ALA  pemenang DFIW 2026 
+jujur  di   indo map ini  tu selalu di ban cuy
+selain  sektornya  yang terlalu panajang …….pas di sektor  d 
+core di i tim  dipaksa  berubah dari vihicle  ke infantry , 
+yang akibatnya   attacer  bakal buang banyak   tiket
+sebelum masuk ke sektor terahir 
+tapi coba lu liat   ini 
+tim longteng tu  berhasil  nemuin  celah dimana mereka bisa masukin  aav ke dalem sektor  d1 nya 
+dan strategi combined arms  di dalem runagan… itu  ngubah  alur permainan  secara drastis 
+,apalgi  aav sendiri kan           unit vihicle paling tebel di game ini
+dan  rusuh  juga gitu  ……kalo di tempat sempit 
+ditmbah mereka juga main  agresif  dengan ngirim   nfantry buat ambil sektor d2 secara  bersamaan
+dan dengan strategi ini …..ngebuat sektor tersulit di  cyclone  
+di  ambil alih hanya  dengan waktu 2 menit 51 detik  aja 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 23
@@ -357,7 +458,7 @@ ditambah lagi  vektor sama smg 45 juga  kebagian varian ct   /vc,jadi  pilihan s
  
 
 
-ledakin reaktor nuklir  , lewat quest flashgip di seson 10 nanti 
+
 
 
 
